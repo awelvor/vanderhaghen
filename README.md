@@ -4,38 +4,66 @@ J o u r n a l
 Veyrier, le vendredi 5 septembre 1939
 
 Nous sommes en guerre depuis 2 jours. Après 3 semaines de très bonnes vacances, un peu angoissées par la fameuse question de Dantzig, nous apprenons par le journal, du mercredi 23 août la conclusion du pacte germano-russe. Pendant ce temps, les missions militaires françaises et anglaises parlementaient à Moscou.
+
 Nous sommes un peu plus inquiets après cette nouvelle tout à fait inattendue et nous partons faire le tour du lac de Genève avec Jeanne Lefort, en séjour à Josanna.
 Le lendemain 24 août, en sortant de la messe, nous voyons sur les murs l’ordre de mobilisation des fascicules 3 et 4. Monsieur Tacquet que nous recevions à diner est assez pessimiste mais très calme. Il me ramène à Annecy avec Jeanne Lefort et nous y apprenons que Dantzig vient de proclamer son indépendance. En même temps, le président Roosevelt envoie un message au roi d’Italie et la Pape fait un appel en faveur de la paix.
 Vendredi 25 août, le fascicule 2 est mobilisé. Le roi Léopold, au congrès d’Oslo, fait un appel en faveur de la paix.
+
 Ce jour-là, nous allons explorer les grottes de Thônes et le soir, les Déjouy viennent nous faire visite. Pour la première fois, on relance l’extinction des lumières.
+
 Le journal du samedi 26 annoncent que les quotidiens « L’Humanité » et « Le Soir » ont été saisis. Nous allons ce jour-là revoir les grottes de Thônes avec Jacques Dejouy  et Pierre Baudrier. Nous cueillons ensuite d’énormes bouquets de cyclamens. Etienne qui descend au village le soir nous apprend la mobilisation des fascicules 1 – 5 – 6. Henry renonce à sa saison à Allevard.
+
 Le président Roosevelt suggère au chancelier Hitler et au président Mussolini un règlement pacifique du différend germano-polonais. Le dimanche 27 juillet, Mr Handerson se rend en Angleterre pour porter à son gouvernement une communication du Führer.
+
 Avant le départ de maman et de Jeanne, nous allons faire le tour du roc de Chère   et nous passons chez les Favre pour décommander la soirée du 28.
+
 La journée du 28 est calme. Nous allons prendre un bain et nous convenons de l’ascension de la Tournette pour le mardi.
+
 Nous partons le mardi à 5h du matin, un peu ennuyés de ne pas avoir de nouvelles. A Montmin et aux chalets, les paysans sont assez inquiets, tous les jeunes sont mobilisés et il manque de bras pour les moissons. En descendant à 5h du soir, nous apprenons que l’Angleterre a tourné  sa réponse à l’Allemagne, mais la presse n’en donne aucun commentaire.
+
 Le mercredi 30, je me mets en peine de savoir si nous pourrons rester à Josanna. Mr Delpothier ne peut pas me répondre. Il me dit de lui téléphoner demain matin.
-On annonce à la fois les restrictions du téléphone et du télégraphe. Maman nous annonce son retour pour le lendemain et nous allons passer une délicieuse soirée au bord du lac avec les Déjouy.
+
+On annonce à la fois les restrictions du téléphone et du télégraphe.
+Maman nous annonce son retour pour le lendemain et nous allons passer une délicieuse soirée au bord du lac avec les Déjouy.
+
 Le jeudi 31, Monsieur Delpothier ne répond pas au téléphone : je vais le voir à Annecy, il ne sait rien de plus. Il est convenu que nous restons à Josanna jusqu’à nouvel ordre. A 4 heures du soir, j’apprends que notre propriétaire fait ses malles pour débarquer à Veyrier et que maman nous arrivera seulement samedi soir. Je télégraphie immédiatement à Henry en lui demandant ce que maman comptait faire en septembre.
+
 En Allemagne, Hitler demande à la Pologne un plénipotentiaire munis des pleins pouvoirs qui puisse se rendre immédiatement en Allemagne. M Lipsky, ambassadeur de Pologne, se présente à midi chez M Von Ribbentrop. Il vient annoncer que son gouvernement, sur les instances puissantes de l’Angleterre, accepte de négocier avec l’Allemagne. Avant de le recevoir, on lui fait demander s’il venait en tant qu’ambassadeur ou comme plénipotentiaire. Ayant répondu qu’il venait en tant qu’ambassadeur, on lui donne audience seulement dans la soirée. Or à 9h du soir, la radio allemande annonce que le gouvernement refuse les propositions allemandes puisque le délai prévu est expiré alors qu’en réalité celui-ci n’en a jamais eu connaissance.
+
 Monsieur Chamberlain apprend par la TSF le teneur de ces nouvelles propositions. Le  1er septembre, l’armée allemande franchit la frontière et bombarde plusieurs villes de Pologne. 
 En allant à Annecy, nous apprenons la convocation du Reichstag. Nous cherchons une villa : j’hésite à prendre « Le Vieux Logis ». A 1 heure 25, je me prépare à faire une visite au curé de Veyrier, Georgette vient nous dire que ma mobilisation générale est décrétée. Un ouvrier vient de montrer l’annonce à l’entrepreneur. Nous descendons immédiatement pour vérifier la nouvelle. A Veyrier, tout le monde est calme. Je me décide rapidement pour « Le Vieux Logis » Pendant nos recherches, les cloches de Veyrier se mettent à sonner à toute volée. Très émus, les Déjouy et nous nous précipitons à l’église en ce moment si émouvant. Après une fervente prière, nous apprenons qu’on vient de sonner le glas d’une vieille femme de 87 ans. Nous remontons rapidement faire le déménagement.
+
 Mobilisation générale en Angleterre et en Suisse.
+
 Le 2 septembre, réunion du Parlement en France et en Angleterre et condamnations des opérations en Pologne.
+
 La Chambre, après le discours noble et simple de M Daladier approuve le gouvernement à l’unanimité et vote 69 milliards pour la Défense nationale. Les ambassadeurs de France et de Grande Bretagne à Berlin font savoir à M Von Ribbentrop que si l’Allemagne ne retire pas ses troupes dans le délai Indiqué, la France et l’Angleterre rempliront leurs obligations envers la Pologne. A Annecy, le plus grand calme règne toujours. Nous avons la bonne surprise de voir rentrer maman plus tôt que nous ne l’attendions, mais Michel et les Déjouy nous quittent le soir par le dernier train.
+
 Le dimanche 3, après un beau sermon sur la confiance en Dieu, nous passons à Veyrier une matinée très paisible. Réunis après le diner dans le jardin, nous écoutons la T.S.F. qui annonce que l’Allemagne n’ayant pas donné de réponse à l’Angleterre avant 11 heures dernier délai indiqué, celle-ci se considérait en état de guerre avec l’Allemagne.
+
 Le 3 septembre, réunis le soir chez le Curé, nous apprenons que l’ambassadeur de France, Monsieur Coulandre, a fait la même démarche et a obtenu la même réponse à 5 heures du soir. Il a de même notifié à l’Allemagne que la France était en état de guerre avec elle. Mr Daladier fait ensuite une courte proclamation.
+
 Le 4 septembre, la Hongrie et le Japon annoncent leur neutralité, tandis que la guerre se poursuit en Pologne. La ville sainte de Czestochowa est détruite par les bombardements. Premier fait de guerre : torpillage de l’Athenia par un sous-marin allemand au large des Hébrides. Les Américains en sont très irrités.
+
 Des avions britanniques survolent l’Allemagne et y jettent des milliers de tracts révélant aux allemands la vérité qu’ils n’ont jamais connue.
+
 La Russie se déclare pays neutre.
-Je vais à Annecy m’inscrire comme infirmière. Tout le monde est calme et triste. 
+
+Je vais à Annecy m’inscrire comme infirmière. Tout le monde est calme et triste.
+
 Pendant la nuit du 4 au 5 septembre, Annecy voit la première alerte aérienne. C’est l’affolement général, tant à Annecy qu’à Veyrier.
 Le 5 septembre, les ambassadeurs de France et d’Angleterre sont rapatriés. L’Allemagne ne veut pas laisser partir Sir Neuville Henderson avant que son ambassadeur ait quitté le territoire britannique. Le gouvernement de La Haye se charge de l’intermédiaire entre les deux pays. Les avions polonais effectuent un raid sur Berlin.
+
 Mr le Curé de Veyrier décide d’avancer l’heure des prières pour la paix. Il veut que l’église donne l’exemple pour l’extinction des lumières.
+
 Dans la nuit du 5 au 6 septembre, nouvelle alerte de nuit à Paris.
 
 Jeudi 7 septembre.
+
 Nous dinons pour la première fois sur notre terrasse d’où nous avons une vue splendide sur Annecy. Nous allons écouter les nouvelles chez Mr le Curé.
+
 On nous annonce de nouvelles alertes aériennes à Bourges, à Poitiers, à Paris, au Havre. Nous ne songeons donc plus à partir puisqu’on n’est pas plus en sureté là-bas qu’ici.
+
 Le 1er communiqué de guerre annonce des avancées locales mais certaines. Aucun nom n’est prononcé.
 André Maurois fait ensuite comprendre l’importance de l’appui que nous apporte l’Angleterre, appui beaucoup plus puissant qu’en 1914.
 Le Congrès Américain proclame la neutralité des Etats Unis, malgré le président Roosevelt qui aurait voulu ravitailler les démocraties.
