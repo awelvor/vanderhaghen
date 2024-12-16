@@ -1,5 +1,8 @@
 # Dieu protège la France.
 
+## 1939
+
+
 
 ## Veyrier, le vendredi 5 septembre 1939
 
@@ -629,6 +632,8 @@ Dimanche 31 décembre.
 Des avions tournent souvent dans le ciel et l’on entend de temps en temps des coups de canon. Vers 5 heures, une détonation plus forte que les autres a été accompagnée d’une flamme aperçue par plusieurs personnes en pleine mer. C’est probablement une mine nouvellement découverte qu’on a fait sauter à coups de canon.
 Ma tante Henriette qui revient d’Orchies, y a trouvé sa maison occupée par le général Lloyd et son état major. Ils y ont reçu la princesse de Battenberg, xxx ( ?) du roi qui venait donner un concert aux officiers. Le duc de Gloucester, actuellement officier de liaison, vient souvent s’installer au salon où il immobilise tous les officiers présents. C’est probablement lui qui a pris à son service le cuisinier de l’Elysée qui était autrefois au service de l’Etat Major. Il a été remplacé par un petit soldat français, qui a le cafard au milieu des Anglais.
 Chamberlain et le roi d’Angleterre sont passés dans la région, sans aller à Orchies.
+
+## 1940
 
 Lundi 1er janvier 1940.
 Les généraux Ganchin et Gort envoient des messages de nouvelle année à leurs troupes.
