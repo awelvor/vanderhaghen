@@ -635,23 +635,23 @@ Chamberlain et le roi d’Angleterre sont passés dans la région, sans aller à
 
 ## 1940
 
-Lundi 1er janvier 1940.
+### Lundi 1er janvier 1940.
 Les généraux Ganchin et Gort envoient des messages de nouvelle année à leurs troupes.
 Le temps est magnifique sur la côte. L’après-midi, nous allons à Audresselles voir les canons qui y sont installés. Le village est rempli de Français et d’Anglais et leurs véhicules : camions, affûts de canon, etc… Nous voyons un magnifique camion fournissant l’énergie électrique, mais un fusilier marin, baïonnette au canon, nous arrête au bord de la falaise où sont disposés les canons et nous devons faire demi-tour.
 Le central téléphonique du Boulevard de la Liberté à Lille est complètement détruit par un incendie.
 
-Mardi 2 janvier.
+### Mardi 2 janvier.
 La Russie rappelle son ambassadeur à Rome. L’Italie en fait autant pour son représentant à Moscou.
 Je quitte Ambleteuse pour rentrer à Lille à 7 heures. Il y a encore de la neige dans les rues et il y fait bien froid.
 
-Mercredi 3 janvier.
+### Mercredi 3 janvier.
 Je vais souper chez Jean Mulliez avec Crotty qui revient de Vannes et Nina qui a été voir son fiancé René Josselin à Château Salins. Chargé d’une reconnaissance pour se rendre compte si tel bois était occupé par les allemands, il a été blessé par une balle qui lui a cassé 2 côtes et l’omoplate, qui est passée entre la colonne vertébrale et l’aorte. C’est miracle qu’il en soit revenu. Nina a passé 3 semaines près de lui. Elle a assisté à la remise de la Légion d’Honneur et de la Croix de Guerre. Elle le retrouve demain à Paris où il passe pour se rendre à La Rochelle en congé de convalescence de 3 mois.
 
-Jeudi 4 janvier.
+### Jeudi 4 janvier.
 L’aide apportée à la Finlande devient de plus en plus active.
 Une de mes amies me dit que le régiment d’Henry est maintenant à Boulay, le secteur est assez calme. Il se fait des prisonniers de part et d’autre, un avion allemand en flammes s’est abattu récemment au dessus de leurs lignes.
 
-Vendredi 5 janvier.
+### Vendredi 5 janvier.
 Il parait que le régiment d’Henry a encore bougé. Ils sont maintenant complètement dans le bled. L’état-major s’est installé dans un grand château complètement vide et on a réquisitionné dans les environs tous les lits et meublés qu’on a pu trouver.
 Des familles allemandes vont être transplantées en Pologne, tandis que les Italiens d’origine allemande peuvent rentrer en Allemagne s’ils le désirent.
 Nous tirons les rois ce soir au Foyer, au milieu des chants scouts et des berceuses de Noël.
