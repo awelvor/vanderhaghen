@@ -1,5 +1,5 @@
-Dieu protège la France.
-J o u r n a l
+# Dieu protège la France.
+
 
 Veyrier, le vendredi 5 septembre 1939
 
