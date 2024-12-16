@@ -1,7 +1,7 @@
 # Dieu protège la France.
 
 
-Veyrier, le vendredi 5 septembre 1939
+## Veyrier, le vendredi 5 septembre 1939
 
 Nous sommes en guerre depuis 2 jours. Après 3 semaines de très bonnes vacances, un peu angoissées par la fameuse question de Dantzig, nous apprenons par le journal, du mercredi 23 août la conclusion du pacte germano-russe. Pendant ce temps, les missions militaires françaises et anglaises parlementaient à Moscou.
 
@@ -26,7 +26,8 @@ Le mercredi 30, je me mets en peine de savoir si nous pourrons rester à Josanna
 On annonce à la fois les restrictions du téléphone et du télégraphe.
 Maman nous annonce son retour pour le lendemain et nous allons passer une délicieuse soirée au bord du lac avec les Déjouy.
 
-Le jeudi 31, Monsieur Delpothier ne répond pas au téléphone : je vais le voir à Annecy, il ne sait rien de plus. Il est convenu que nous restons à Josanna jusqu’à nouvel ordre. A 4 heures du soir, j’apprends que notre propriétaire fait ses malles pour débarquer à Veyrier et que maman nous arrivera seulement samedi soir. Je télégraphie immédiatement à Henry en lui demandant ce que maman comptait faire en septembre.
+## Le jeudi 31,
+Monsieur Delpothier ne répond pas au téléphone : je vais le voir à Annecy, il ne sait rien de plus. Il est convenu que nous restons à Josanna jusqu’à nouvel ordre. A 4 heures du soir, j’apprends que notre propriétaire fait ses malles pour débarquer à Veyrier et que maman nous arrivera seulement samedi soir. Je télégraphie immédiatement à Henry en lui demandant ce que maman comptait faire en septembre.
 
 En Allemagne, Hitler demande à la Pologne un plénipotentiaire munis des pleins pouvoirs qui puisse se rendre immédiatement en Allemagne. M Lipsky, ambassadeur de Pologne, se présente à midi chez M Von Ribbentrop. Il vient annoncer que son gouvernement, sur les instances puissantes de l’Angleterre, accepte de négocier avec l’Allemagne. Avant de le recevoir, on lui fait demander s’il venait en tant qu’ambassadeur ou comme plénipotentiaire. Ayant répondu qu’il venait en tant qu’ambassadeur, on lui donne audience seulement dans la soirée. Or à 9h du soir, la radio allemande annonce que le gouvernement refuse les propositions allemandes puisque le délai prévu est expiré alors qu’en réalité celui-ci n’en a jamais eu connaissance.
 
@@ -35,7 +36,8 @@ En allant à Annecy, nous apprenons la convocation du Reichstag. Nous cherchons 
 
 Mobilisation générale en Angleterre et en Suisse.
 
-Le 2 septembre, réunion du Parlement en France et en Angleterre et condamnations des opérations en Pologne.
+## Le 2 septembre,
+réunion du Parlement en France et en Angleterre et condamnations des opérations en Pologne.
 
 La Chambre, après le discours noble et simple de M Daladier approuve le gouvernement à l’unanimité et vote 69 milliards pour la Défense nationale. Les ambassadeurs de France et de Grande Bretagne à Berlin font savoir à M Von Ribbentrop que si l’Allemagne ne retire pas ses troupes dans le délai Indiqué, la France et l’Angleterre rempliront leurs obligations envers la Pologne. A Annecy, le plus grand calme règne toujours. Nous avons la bonne surprise de voir rentrer maman plus tôt que nous ne l’attendions, mais Michel et les Déjouy nous quittent le soir par le dernier train.
 
