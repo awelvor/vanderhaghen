@@ -43,9 +43,11 @@ La Chambre, après le discours noble et simple de M Daladier approuve le gouvern
 
 Le dimanche 3, après un beau sermon sur la confiance en Dieu, nous passons à Veyrier une matinée très paisible. Réunis après le diner dans le jardin, nous écoutons la T.S.F. qui annonce que l’Allemagne n’ayant pas donné de réponse à l’Angleterre avant 11 heures dernier délai indiqué, celle-ci se considérait en état de guerre avec l’Allemagne.
 
-Le 3 septembre, réunis le soir chez le Curé, nous apprenons que l’ambassadeur de France, Monsieur Coulandre, a fait la même démarche et a obtenu la même réponse à 5 heures du soir. Il a de même notifié à l’Allemagne que la France était en état de guerre avec elle. Mr Daladier fait ensuite une courte proclamation.
+## Le 3 septembre,
+réunis le soir chez le Curé, nous apprenons que l’ambassadeur de France, Monsieur Coulandre, a fait la même démarche et a obtenu la même réponse à 5 heures du soir. Il a de même notifié à l’Allemagne que la France était en état de guerre avec elle. Mr Daladier fait ensuite une courte proclamation.
 
-Le 4 septembre, la Hongrie et le Japon annoncent leur neutralité, tandis que la guerre se poursuit en Pologne. La ville sainte de Czestochowa est détruite par les bombardements. Premier fait de guerre : torpillage de l’Athenia par un sous-marin allemand au large des Hébrides. Les Américains en sont très irrités.
+## Le 4 septembre,
+la Hongrie et le Japon annoncent leur neutralité, tandis que la guerre se poursuit en Pologne. La ville sainte de Czestochowa est détruite par les bombardements. Premier fait de guerre : torpillage de l’Athenia par un sous-marin allemand au large des Hébrides. Les Américains en sont très irrités.
 
 Des avions britanniques survolent l’Allemagne et y jettent des milliers de tracts révélant aux allemands la vérité qu’ils n’ont jamais connue.
 
@@ -60,7 +62,7 @@ Mr le Curé de Veyrier décide d’avancer l’heure des prières pour la paix. 
 
 Dans la nuit du 5 au 6 septembre, nouvelle alerte de nuit à Paris.
 
-Jeudi 7 septembre.
+## Jeudi 7 septembre.
 
 Nous dinons pour la première fois sur notre terrasse d’où nous avons une vue splendide sur Annecy. Nous allons écouter les nouvelles chez Mr le Curé.
 
@@ -75,88 +77,88 @@ Mr Chamberlain fait aux Communes un exposé très clair de la situation généra
 En France, la vie se réorganise un peu à la fois, la poste et les chemins de fer vont recommencer à fonctionner
 Je vais faire les foins au Péril avec Françoise et Henriette. Travail peu fatiguant. Vue magnifique et fermiers très sympathiques.
 
-Samedi 9 septembre.
+## Samedi 9 septembre.
  Je vais faire les foins dans une ferme située près du lac. Encore une fois, gens très aimables qui nous offrent du vin autant que nous en voulons.
 La RAF fait une 4ème distribution de tracts sur l’Allemagne. A Dantzig, les Polonais qui défendaient la Westerplatte sont obligés de se rendre après 8 jours de bombardement. 
 On annonce l’arrivée des premiers blessés à Chambéry.
 La Croix Rouge d’Annecy me demande de prendre rendez-vous pour choisir l’hôpital où je désire prendre du service.
 
-Dimanche 10 septembre.
+## Dimanche 10 septembre.
 On nous donne enfin quelques précisions sur les opérations françaises. Les Français se sont emparés de la forêt de la Woerry qui était truquée comme un décor de théâtre.
 Le Canada entre en guerre aux côtés de l’Angleterre, ils vont combattre le nazisme sur la Vistule pour ne pas devoir le rencontrer plus tard sur les bords du Saint Laurent. Nous recevons la première lettre d’Henry envoyée de Béthune lundi dernier.
 A Veyrier, délicieuse journée d’été. Nous recevons à diner Mr le Curé et nous allons l’après-midi jusqu’au col des Aravis : vue d’une très grande netteté sur le Mont Blanc et les aiguilles de Chamonix.
 
-Lundi 11 septembre.
+## Lundi 11 septembre.
  « Avancées locales » dit le communiqué d’aujourd’hui. En Pologne, les Allemands reculent devant Varsovie dont ils annonçaient hier la reddition.
 Première lettre de Michel : à son arrivée à Lille, il a rencontré Henry Gand qui lui a demandé de le conduire lui et ses bagages à Pont Audemer. Comme Michel n’était pas rappelé, il est parti là-bas pour 3 jours. Etienne apprend que, en raison de la guerre, il est possible de passer son permis de conduire à 16 ans. Il se met tout de suite à apprendre et à faire les démarches nécessaires.  Je vais à Annecy voir Mme Currel qui m’a donné rendez-vous. Elle me propose de tenir un poste de triage pour les blessés à la gare d’Annecy et m’invite à diner le lendemain avec elle.
 
-Mardi 12 septembre.
+## Mardi 12 septembre.
 Aujourd’hui, Daladier annonce un changement de composition de son cabinet. M Bernard qui est nommé ambassadeur à Burgos, est remplacé aux Affaires Etrangères par le Maréchal Pétain.
 Je vais aujourd’hui au marché à Annecy. En arrivant en ville, je vois beaucoup de monde arrêté devant des affiches fraichement collées. Elles annoncent que le pain et le sucre vont maintenant être rationnés pour les habitants d’Annecy. Tout le monde allonge la mine d’abord, et on se précipite ensuite faire ses provisions : je fais comme les badauds et j’obtiens à grand peine 1 kilo de sucre en morceaux chez notre meilleur fournisseur. Je vais ensuite diner chez Mme Currel, présidente de la Croix Rouge d’Annecy. Je suis reçue d’une façon charmante. On me parle tant et plus de la fille unique et on me fait admirer un album où il n’est question que d’elle. Monsieur me montre de très belles stéréoscopies de la région.
 Je vais ensuite rendre service au collège Saint Michel, nouvel hôpital de la S.B.M. Au retour, j’apprends à Etienne à conduire l’auto. Je suis arrêté à Albigny par les gendarmes qui cherchent à me mettre dedans et qui ne veulent pas croire que j’ai mon permis de conduire, parce qu’ils ne reconnaissent pas la photo.
 Madame Baratte vient passer l’après-midi avec ses enfants. Elle nous annonce l’arrivée de sœur Carreras et son départ pour demain à 7 heures du matin. Elle emmènera avec elle religieuses et orphelins et ferme sa villa.
 Henriette a de la fièvre ce soir, nous l’installons dans la chambre de maman pour la nuit.
 
-Mercredi 13 septembre.
+## Mercredi 13 septembre.
  Monsieur Daladier renonce au remaniement de son cabinet. Il s’est réuni avec M Chamberlain ainsi qu’avec les généralissimes français et Anglais et ils ont constitué pour la 1ère fois le Conseil Suprême.
 Les avant-gardes françaises commencent l’investissement de Sarrebruck.
 Ici à Veyrier, il fait froid depuis 2 jours. Henriette est dans son lit avec de la fièvre, Françoise s’est couchée ce soir avant le souper, et je commence à avoir mal à la gorge. Heureusement, rien de tout cela n’est grave.
 J’ai été travailler à Saint Michel cet après-midi. J’ai ciré un parquet qui s’obstinait à ne pas briller et j’ai rapporté de fameuses courbatures.
 
-Jeudi 14 septembre.
+## Jeudi 14 septembre.
  Le cabinet Daladier est enfin remanié tandis que Chamberlain, aux Communes, fait un rapport sur la réunion du Conseil Suprême.
 Nous recevons à Veyrier, l’ordre de mobilisation de Michel. Il doit être le 16 avant midi au 40ème régiment de Défense contre Aéronef à Nogent-sur-Marne. Après beaucoup d’hésitations, maman  se décide à lui renvoyer l’appel par la poste. D’ailleurs il a du en recevoir un autre directement.
 Françoise et Henriette sont couchées toute la journée et mon mal de gorge m’empêche de mettre le nez dehors.  D’ailleurs il pleut toute la journée.
 
-Vendredi 15 septembre.
+## Vendredi 15 septembre.
 Les Anglais annoncent qu’une nouvelle vague de sous-marins allemands vient de quitter ses ports d’attache pour effectuer la relève des sous-marins qui ont participé à l’attaque pendant ces 15 premiers jours. Les 2 armées polonaises font leur jonction. Le mauvais temps, les pluies d’automne gênent plus ou moins les opérations en France comme en Pologne.
 Je ramène la générale Dosse du collège Saint Michel, où elle avait été aider à la lingerie. Son mari, autrefois membre du conseil supérieur de la guerre et commandant de l’armée de couverture est à la retraite depuis 2 mois. Il a commandé pendant 3 ans l’armée des Alpes et d’après lui, il est impossible à l’Italie de franchir en hiver les cols franco-italiens. Il est remplacé par le général Giraud qui doit commander maintenant l’armée de la Sarre.
 Après avoir écouté le journal parlé chez Monsieur le Curé, nous parlons de Thérèse Neumann, dont on vient d’annoncer la mort. Monsieur le Curé nous dit de nous défier de ces voyantes : d’ailleurs l’Eglise défend de parler de Thérèse Neumann. Depuis que son père s’est refusé à la laisser surveiller. Mr le Curé nous parle de l’action certaine du diable : dans la région, il a tourmenté longtemps un curé prés d’Annemasse et plusieurs personnes de Morzine, possédées par lui, étaient prises de tremblement au moment de l’élévation. 
 Maman promet à un jeune Dominicain qui se trouve là, de lui raconter une histoire sur Saint Dominique.
 
-Samedi 16 septembre.
+## Samedi 16 septembre.
 Les Français menacent de plus en plus Sarrebruck dont la population est évacuée vers l’arrière. L’aviation ennemie fait pour la première fois une attaque sérieuse qui est combattue efficacement par l’aviation de chasse française.
 La Russie mobilise discrètement et des négociateurs allemands pour parachever le pacte germano-soviétique. Nous saurons un de ces jours ce que cela nous réserve.
 A Veyrier, journée d’automne avec plusieurs averses l’après-midi. Nous nous décidons quand même à aller à Bluffy cueillir des cyclamens, nous en revenons bien mouillés, mais avec un beau bouquet de « fleurs des Alpes ».
 
 
 
-Dimanche 17 septembre.
+## Dimanche 17 septembre.
 Fait très important et très émouvant dans l’histoire de la guerre : l’attaque de la Pologne par la Russie. La notification est faite à 3 heures du matin et l’invasion a lieu à 10 heures.
 Les gouvernements français et Anglais affirment qu’ils prévoyaient l’évènement mais tout le monde est quand même ému et indigné. 
 On annonce que des permissions de 21 jours vont être données à certains militaires pour aller faire les moissons. Monsieur Baratte qui revient de Lille nous apporte une volumineuse lettre de Michel, un véritable journal. Il nous raconte ses multiples occupations : tranchées creusées, récolte de pommes de terre. Il nous parle en même temps de toute la famille : Maurice, Mulliez, Selosse et tous les voisins du quartier. Enfin, il nous raconte les déboires qu’il a eu pour enregistrer les bagages que nous lui avions demandés. 
 Nous profitons d’une belle journée pour monter au Mont Revard par le col de Plainpalais. Le téléphérique est maintenant un poste de guet. Au retour, nous apprenons par la T.S.F. qui se fait entendre dans un square d’Annecy, l’entrée en guerre de la Russie.
 Le retour depuis Annecy est assez difficile à cause de l’obscurité.
 
-Lundi 18 septembre
+## Lundi 18 septembre
 On annonce que Daladier a été visiter le front de la Sarre. Il s’est intéressé à tous et il a été chaudement acclamé.
 La Pologne se bat maintenant avec les Allemands et les Russes qui semblent tous deux faire la course pour prendre la ville de Lvov. Toute l’Europe est indignée du geste de la Russie et on suppose qu’il aura des conséquences imprévues.
 Que fera l’Italie ? Pour certains, les Italiens catholiques ne s’allieront jamais même indirectement avec les Russes. Pour d’autres, elle attend que l’Allemagne ait les mains libres en Europe, pour se retourner avec elle contre la France. Mais l’Italie reste impénétrable et les communiqués officiels sont muets à son sujet.
 Nous allons cet après-midi faire visite à Mr Baratte qui a vu Michel à Lille et à failli voyager avec lui de Lille à Paris. Il nous raconte que d’Annecy à Paris à l’aller, il a mis 2 jours. Il nous parle ensuite de sa vie de brancardier pendant la guerre.
 Mr le Curé nous raconte le mariage d’un franc-maçon à l’article de la mort et d’un bohémien de 70 ans qui voulait se marier avec une femme de 30 ans. Aux deux premières questions, il ne répond pas, il fallut que sa fiancée lui envoie un coup de poing pour qu’il prononce le « oui » sacramentel. Fou rire du Curé et des témoins.
 
-Mardi 19 septembre.
+## Mardi 19 septembre.
 Les Russes pénètrent de plu en plus en Pologne. On dit même, à tort ou à raison, que les Polonais fraternisent avec eux.
 Les Anglais annoncent que leur bateau porte-avions le « Courageous » a été coulé par un sous-marin allemand qui a été poursuivi immédiatement et très probablement coulé lui aussi. La France perd aussi un bateau mouilleur de mines le « Pluton » qui explose pour une raison inconnue.
 Ce matin, je rencontre Mme Curel au marché d’Annecy, elle me dit qu’elle n’a pas besoin de mes services pour le moment. Je ne sais vraiment pas quand je pourrai me rendre utile, d’autant plus qu’Odette Cramet m’annonce que le Service Social rouvre ses portes cette année à Lille.
 Cet après-midi, nous encadrons photos et gravures dont nous garnissons toute la maison. Visite d’1 heure chez Mr le Curé. Il est très inquiet des évènements et craint l’entrée en guerre de l’Italie mais il se détend en nous racontant de bien bonnes histoires de couvent.
 
-Mercredi 20 septembre.
+## Mercredi 20 septembre.
 Les Polonais tiennent toujours dans 3 villes. Hitler, pour la première fois de la guerre, fait un discours à Dantzig pour justifier son agression sur la Pologne.
 Visite rapide du Curé de Menthon, nous irons le revoir demain. Il nous fera visiter les appartements qu’il cherche à louer. Nous passons l’après-midi à visiter des villas, mais nous n’avons rien trouvé qui nous convienne.
 
-Jeudi 21 septembre.
+## Jeudi 21 septembre.
 On annonce sans aucun commentaire l’assassinat de Monsieur Codreanu, président du Conseil de Roumanie. Qu’elles en seront les conséquences pour la Roumanie et pour nous ?
 La France fera comme l’Angleterre à propos de l’heure d’hiver qui sera rétablie seulement au milieu de novembre. 
 A la mairie d’Annecy, on annonce qu’il faudra un permis de circulation pour voyager une auto dans le canton. On dit même que l’essence va être rationnée : mais toutes ces prescriptions changent chaque jour.
 Nous allons à Menthon faire visite au curé qui nous fait visiter ses appartements aux Faure : nous voyons Mati et sa cousine. Enfin, en allant à Bluffy, nous rencontrons la comtesse Françoise de Menthon qui nous parle de ses 6 garçons et de ses soucis pour leur éducation et leur logement.
 
-Vendredi 22 septembre.
+## Vendredi 22 septembre.
 L’Allemagne et la Russie commencent à ne plus être tout à fait d’accord au sujet de la Pologne. L’intervention de la Russie aurait été pour l’Allemagne un évènement inattendu et assez désagréable.
 Nous recevons aujourd’hui le colis envoyé par Michel ; il y a bien quelques petites déceptions mais chacun est content d’avoir enfin l’objet désiré.
 Cet après-midi, nous montons au Mont Veyrier avec la famille Baratte. Le Mont Veyrier se dégage par moment et nous montre alternativement son sommet ou ses glaciers.
 
-Samedi 23 septembre.
+## Samedi 23 septembre.
 Les communiquée officiels sont de plus en plus laconiques sur les opérations françaises. La Pologne est partagée entre les 2 agresseurs mais au grand déplaisir de l’Allemagne, la Russie qui n’a presque pas combattu en a la plus grande partie et elle coupe toute communication entre la région allemande et la Roumanie. Le Conseil Suprême s’est réuni pour la seconde fois quelque part en Angleterre.
 Nous visitons la villa Dani à Chavoire. Nous la trouvons de notre goût mais pas extraordinaire, le propriétaire, Mr Fournier ne nous pousse pas du tout à la louer. Françoise et Henriette vont avec maman faire leur présentation aux « Tilleuls ». Elles en reviennent enchantées.
 
