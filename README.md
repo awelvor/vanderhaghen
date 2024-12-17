@@ -1,5 +1,23 @@
 # Dieu protège la France.
 
+
+<details>
+
+<summary>1er septembre 1939</summary>
+
+### You can add a header
+
+You can add text within a collapsed section. 
+
+You can add an image or a code block, too.
+
+```ruby
+   puts "Hello World"
+```
+
+</details>
+
+
 ## 1939
 
 > Text that is a quote
