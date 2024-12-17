@@ -656,7 +656,7 @@ Il parait que le régiment d’Henry a encore bougé. Ils sont maintenant compl�
 Des familles allemandes vont être transplantées en Pologne, tandis que les Italiens d’origine allemande peuvent rentrer en Allemagne s’ils le désirent.
 Nous tirons les rois ce soir au Foyer, au milieu des chants scouts et des berceuses de Noël.
 
-Samedi 6 janvier.
+### Samedi 6 janvier.
 Le ministre de la guerre anglais démissionne. Mr Chamberlain le remplace immédiatement par Sir Olivier Stanley. Le motif du remaniement est une discussion au sujet du ministère duquel dépend l’aviation du corps expéditionnaire britannique.
 Je vais faire visite à ma tante Marie Bouillet et Emile Maquet. Paul a été longtemps dans un petit poste près de Wissembourg, à 1 kilomètre des allemands qu’il n’a jamais vus. Plusieurs marmites sont tombées aux environs du poste, le lendemain de la relève, le remplaçant de Paul a été touché.
 
