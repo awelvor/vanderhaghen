@@ -23,16 +23,20 @@ Le président Roosevelt suggère au chancelier Hitler et au président Mussolini
 Avant le départ de maman et de Jeanne, nous allons faire le tour du roc de Chère   et nous passons chez les Favre pour décommander la soirée du 28.
 
 La journée du 28 est calme. Nous allons prendre un bain et nous convenons de l’ascension de la Tournette pour le mardi.
-
-Nous partons le mardi à 5h du matin, un peu ennuyés de ne pas avoir de nouvelles. A Montmin et aux chalets, les paysans sont assez inquiets, tous les jeunes sont mobilisés et il manque de bras pour les moissons. En descendant à 5h du soir, nous apprenons que l’Angleterre a tourné  sa réponse à l’Allemagne, mais la presse n’en donne aucun commentaire.
+> [!IMPORTANT]
+> Nous partons le mardi à 5h du matin, un peu ennuyés de ne pas avoir de nouvelles. A Montmin et aux chalets, les paysans sont assez inquiets, tous les jeunes sont mobilisés et il manque de bras pour les moissons. En descendant à 5h du soir, nous apprenons que l’Angleterre a tourné  sa réponse à l’Allemagne, mais la presse n’en donne aucun commentaire.
 
 Le mercredi 30, je me mets en peine de savoir si nous pourrons rester à Josanna. Mr Delpothier ne peut pas me répondre. Il me dit de lui téléphoner demain matin.
 
 On annonce à la fois les restrictions du téléphone et du télégraphe.
 Maman nous annonce son retour pour le lendemain et nous allons passer une délicieuse soirée au bord du lac avec les Déjouy.
+> [!NOTE]
+> Useful information that users should know, even when skimming content.
 
 ## Le jeudi 31,
-Monsieur Delpothier ne répond pas au téléphone : je vais le voir à Annecy, il ne sait rien de plus. Il est convenu que nous restons à Josanna jusqu’à nouvel ordre. A 4 heures du soir, j’apprends que notre propriétaire fait ses malles pour débarquer à Veyrier et que maman nous arrivera seulement samedi soir. Je télégraphie immédiatement à Henry en lui demandant ce que maman comptait faire en septembre.
+
+> [!CAUTION]
+>Monsieur Delpothier ne répond pas au téléphone : je vais le voir à Annecy, il ne sait rien de plus. Il est convenu que nous restons à Josanna jusqu’à nouvel ordre. A 4 heures du soir, j’apprends que notre propriétaire fait ses malles pour débarquer à Veyrier et que maman nous arrivera seulement samedi soir. Je télégraphie immédiatement à Henry en lui demandant ce que maman comptait faire en septembre.
 
 En Allemagne, Hitler demande à la Pologne un plénipotentiaire munis des pleins pouvoirs qui puisse se rendre immédiatement en Allemagne. M Lipsky, ambassadeur de Pologne, se présente à midi chez M Von Ribbentrop. Il vient annoncer que son gouvernement, sur les instances puissantes de l’Angleterre, accepte de négocier avec l’Allemagne. Avant de le recevoir, on lui fait demander s’il venait en tant qu’ambassadeur ou comme plénipotentiaire. Ayant répondu qu’il venait en tant qu’ambassadeur, on lui donne audience seulement dans la soirée. Or à 9h du soir, la radio allemande annonce que le gouvernement refuse les propositions allemandes puisque le délai prévu est expiré alors qu’en réalité celui-ci n’en a jamais eu connaissance.
 
