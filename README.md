@@ -17,6 +17,12 @@ You can add an image or a code block, too.
 
 </details>
 
+```
+function test() {
+  console.log("notice the blank line before this function?");
+}
+```
+
 
 ## 1939
 
