@@ -660,390 +660,390 @@ Nous tirons les rois ce soir au Foyer, au milieu des chants scouts et des berceu
 Le ministre de la guerre anglais démissionne. Mr Chamberlain le remplace immédiatement par Sir Olivier Stanley. Le motif du remaniement est une discussion au sujet du ministère duquel dépend l’aviation du corps expéditionnaire britannique.
 Je vais faire visite à ma tante Marie Bouillet et Emile Maquet. Paul a été longtemps dans un petit poste près de Wissembourg, à 1 kilomètre des allemands qu’il n’a jamais vus. Plusieurs marmites sont tombées aux environs du poste, le lendemain de la relève, le remplaçant de Paul a été touché.
 
-Dimanche 7 janvier.
+### Dimanche 7 janvier.
 Le Comte Csaky et Ciano se rencontrent à Venise pour discuter des relations Hongaro-Roumaines.
 Je vais diner chez Jean Mulliez avec Trotty et il me retient pour le soir. Il me donne une pile électrique, chose introuvable à Lille et Trotty et moi, nous tachons de le décider à aller à Bordeaux au mariage de Ginette Malo et ensuite à pousser une pointe jusqu’à Nérac.
 
-Lundi 8 janvier.
+### Lundi 8 janvier.
 Miss Unity Mitford, amie de Hitler, est arrivée en Angleterre gravement blessée. Elle a reçu 2 coups de revolver tirés par la Gestapo qui craignait qu’elle fasse de l’espionnage. La radio allemande annonce que 2 jeunes gens de Tourcoing, dont un Wauquier, ont été faits prisonniers, ils devaient faire partie du régiment d’Henry.
 
 
-Mardi 9 janvier.
+### Mardi 9 janvier.
 Goering veut faire des économies par tous les moyens et veut faire du Reich de demain « une usine, une caserne, une cuisine ».
 Je vais souper chez Madame Lesay. Elle me dit que son neveu a bien été fait prisonnier avec Pierre Bernard de Tourcoing, qui était venu le voir dans un petit poste avancé de la Wxxx ( ?). En allant reconduire son ami chez le commandant, il a dû traverser la forêt et une patrouille allemande qu’ils n’avaient pas vu venir les a entourés avant qu’ils n’aient pu se défendre. Il a écrit peu après à sa famille, en confirmant qu’il était prisonnier. Le commandant qui avait permis au lieutenant Bernard d’aller aux avant-postes d’un régiment qui n’était pas le sien, a eu 15 jours d’arrêt. Le lieutenant Brière qui allait à la rencontre des 2 officiers n’a plus trouvé que la bicyclette abandonnée du lieutenant Bernard. 
  
-Mercredi 10 janvier.
+### Mercredi 10 janvier.
 Herriot est réélu président de la Chambre tandis que Xavier Vallat remplace le communiste Duclos à la vice-présidence. 4 députés communistes qui s’étaient glissés dans l’Assemblée, sont expulsés.
 Les infirmières nous annoncent la mort du docteur David, elles en sont très émues car il devait leur faire un cours aujourd’hui même.
 
-Jeudi 11 janvier.
+### Jeudi 11 janvier.
 Les 1ers Canadiens ont débarqué en France.
 Le ministre de l’Armement demande la récupération des déchets de toute sorte et surtout de papier dont on manque beaucoup pour le moment.
 
-Vendredi 12 janvier.
+### Vendredi 12 janvier.
 La digue Hindenburg qui reliait l’ile de Sylt à l’Allemagne, a été endommagée par les bombes lancées par la Royal Air Force.
 Le gouvernement ordonne la fermeture des boucheries le lundi, le mardi et le vendredi, la viande de cheval pourra être vendue le lundi, le mardi mais pas le vendredi.
 Le maire de Lille ordonne la vaccination antivariolique pour tous ceux qui n’ont pas été vaccinés depuis 5 ans.
 Par le temps froid et clair d’aujourd’hui, l’alerte, qu’on n’a pas entendue depuis longtemps, est donnée de midi ¼ à 1h ¼.
 
-Samedi 13 janvier.
+### Samedi 13 janvier.
 La guerre se ralentit en Finlande à cause du froid et pour permettre une épuration de l’armée russe par les Soviets.
 La Hollande inondée, est également gelée mais l’invasion n’en est pas facilitée pour cela.
 Je vais ce matin à l’enterrement du docteur David. La famille y assiste en robe et le Dr Lepoutre fait un très bel éloge du défunt.
 Je reçois une lettre d’Henry qui est maintenant infirmier de sa compagnie et qui est très heureux d’être son maitre. Il doit être en ce moment du côté de Boulay.
 
-Dimanche 14 janvier.
+### Dimanche 14 janvier.
 La Belgique craint une fois de plus une invasion prochaine facilitée par le gel des inondations en Hollande. Elle rappelle les permissionnaires et une partie des réservistes.
 Je reçois la visite de Michel, tout à fait à l’improviste. Nous allons diner ensemble chez tante Germaine et Michel reprend le train de 5 heures. Depuis son retour d’Annecy, il est au Fort de Romainville. Dans 15 jours, il passera un examen qui lui permettra d’être E.O.R. Il est bien content d’avoir quitté Montlignon.
 
-Lundi 15 janvier.
+### Lundi 15 janvier.
 La Belgique craint toujours l’invasion mais reste très calme. L’Angleterre n’y croit pas pour le moment mais elle supprime toutes les permissions de ses soldats.
 La frontière franco-belge est maintenant ouverte aux troupes françaises, on a ôté les fils de fer barbelés, de nouvelles troupes françaises et anglaises s’installent un peu partout le long de la frontière.
 Je reçois la visite de Mr Baratte qui revient d’Annecy, il me donne de bonnes nouvelles de là-bas où il ne fait pas beaucoup plus froid qu’ici.
 
-Mardi 16 janvier.
+### Mardi 16 janvier.
 Je commence ma tournée de visites par le dégel et je la termine par la neige. L’après-midi, la gelée apparait et je vais souper chez les Dubois par un terrible verglas. Mr Lefebvre qui vient me reconduire, fait une mauvaise chute sur le dos.
 Christian me vend des cigarettes anglaises très bon marché. Elles viennent de Cysoing où les Anglais passent continuellement et s’excusent du dérangement en envoyant une boite de chocolats.
 
-Mercredi 17 janvier.
+### Mercredi 17 janvier.
 Le verglas et le froid sont terribles. Je vais à Haubourdin au mariage d’Antoinette d’Herbigny et j’y ai bien froid. La mariée est en toilette de ville, il n’y a pas de cortège, c’est vraiment un mariage de guerre. Son mari a 13 jours de permission, elle le suivra ensuite à Embrun où il est cantonné.
 Je vais souper chez Mr Lefebvre et en sortant de chez lui, je trouve une nouvelle couche de neige.
 
 Jeudi 18 janvier.
-Pour nous détendre d’un examen de droit civil de Mr Danel, nous allons au cinéma Actualités, voir « les Loups entre eux ». C’est une passionnante histoire d’espionnage. Comme actualités, nous voyons la mise en œuvre de canons de 175 et de très beaux exercices de chasseurs alpins en haute montagne.
+### Pour nous détendre d’un examen de droit civil de Mr Danel, nous allons au cinéma Actualités, voir « les Loups entre eux ». C’est une passionnante histoire d’espionnage. Comme actualités, nous voyons la mise en œuvre de canons de 175 et de très beaux exercices de chasseurs alpins en haute montagne.
 
 
 
-Vendredi 19 janvier.
+### Vendredi 19 janvier.
 Une grave explosion a lieu en Angleterre aux environs de Londres dans une usine d’armement. D’autre part, 3 sous marins anglais ont disparu, plusieurs de leurs survivants ont été recueillis par des navires allemands.
 Je fais une tournée de visites par une température de -13°, il fait vraiment froid.
 J’invite aujourd’hui le cercle de bridge à goûter dans une pâtisserie. Nous sommes 7 qui sont très contentes d’avoir des nouvelles des unes et des autres.
 Il y a encore des mouvements de troupes à Lille et aux environs. Je vois passer ne nombreuses auto anglaises blindées qui s’éloignent de la frontière.
 
-Samedi 20 janvier.
+### Samedi 20 janvier.
 Les Russes sont complètement encerclés par les Finlandais, ils perdent des quantités inconnues d’hommes et de matériel.
 Le froid augmente toujours, il y avait -17 ce matin. Maman se plaint beaucoup du froid à Veyrier où elle n’est pas bien chauffée.
 
-Dimanche 21 janvier.
+### Dimanche 21 janvier.
 Il y a maintenant une belle couche de neige de 10 cm environ. Je vais diner chez les Maurice avec mon oncle Alexandre, Jean Mulliez et Marguerite Selosse. José vient d’être mobilisé et l’oncle Alexandre qui logeait chez lui est parti s’installer chez Jean Mulliez. Tout le monde fait ses pronostics sur la prochaine offensive et l’invasion de la Belgique. Les industriels ne veulent pas se réapprovisionner en prévision de cela.
 Les alertes ont cessé d’un jour à l’autre au milieu de novembre. On avait remarqué qu’un avion venait tous les jours au dessus de la région à la même heure et faisait demi-tour au même endroit. Un avion français camouflé en allemand a fait les mêmes évolutions et a pu capter un message de T.S.F. qui était envoyé. On a fini par découvrir le poste émetteur organisé par plusieurs soldats qui ont été fusillés. Depuis ce temps-là, nous n’avons plus d’alertes et le poste de Stuttgart est beaucoup moins renseigné.
 Je vais passer l’après-midi chez Mr Baratte. Au retour je trouve une lettre de ma tante Henriette qui me dit qu’une mine a échoué dans les rochers du fort d’Ambleteuse. On est venu lui dire d’évacuer sa villa parce qu’il y avait des risques d’explosion. Avant qu’elle n’ait eu le temps de partir, la mine a été désamorcée et elle en a été quitte pour quelques émotions.
 
-Lundi 22 janvier.
+### Lundi 22 janvier.
 En passant à la maison, je vais dire bonjour à Elisabeth Bernard qui est à Lille pour quelques jours, en attendant de repartir en Bretagne retrouver sa famille. Elle a un frère à Madagascar et un autre sur un pétrolier qui ravitaille les escadres françaises.
 Un navire Italien est en feu entre Toulon et Marseille. Il y a 600 personnes à bord, on a commencé à débarquer à Marseille quelques rescapés.
 Mardi 23 janvier.
  Le paquebot italien « Oragio » a sauté à cause d’une explosion dans la salle des moteurs. Immédiatement, les Allemands accusent la France d’avoir préparé un attentat.
 
-Mercredi 24 janvier.
+### Mercredi 24 janvier.
 L’alerte du 13 janvier en Belgique a été donnée à cause de documents trouvés dans un avion allemand abattu. Ces documents contenaient tout un plan d’attaque détaillée sur ce qui devait se passer à brève échéance.
 Je vais souper chez Mme Lesay dont la famille a eu des nouvelles de René Wauquiez. Il demande des lettres et des provisions et se plaint du froid et de l’inaction, il est tout le temps avec son ami et ils ont 2 heures de récréation par jour.
 
-Jeudi 25 janvier.
+### Jeudi 25 janvier.
 La Roumanie, sous la pression du Reich, entreprend aves lui des négociations pour la livraison de pétrole, mais l’Angleterre entend s’y opposer énergiquement par tous les moyens en son pouvoir.
 Aujourd’hui, Monsieur Danel nous fait un cours très intéressant sur la nouvelle orientation de la législation et Mr Gand commence le droit pénal.
 Je vois dans la Dépêche la mort de Mr Béhaghel à Cassel.
  
-Vendredi 26 janvier.
+### Vendredi 26 janvier.
 Le parlement canadien est dissous parce qu’on lui reprochait de ne pas mener la guerre avec la rigueur désirable.
 Je vais aujourd’hui au bridge chez les Desnoulez à Saint André. En repartant le soir, il tombe de la neige fondue qui gèle immédiatement, d’où verglas extraordinairement glissant. Le retour en auto avec Antoinette Dupont est très pénible. Les tramways en circulant provoquent continuellement des courts-circuits qui illuminent tout le ciel. Cela est dû au givre qui se forme tout le temps sur les fils.
 Je reçois une lettre d’Henry dont le régiment a été relevé du front il y a quelques jours. En juxtaposant les 1ères lettres des phrases, j’arrive à savoir qu’il est dans le secteur de Boulay, mais il ne sait pas encore sa nouvelle destination.
 
-Samedi 27 janvier.
+### Samedi 27 janvier.
 Ce matin, c’est le dégel complet, mais à partir de 3 heures, il recommence à geler et il fait encore bien plus glissant qu’avant. A Lille, le ravitaillement en charbon est très difficile, il faut aller chercher le charbon soi-même. Les marchands de charbon se font copieusement injurier quand ils passent dans la rue.
 
-Dimanche 28 janvier.
+### Dimanche 28 janvier.
 Je vais à Cinéac voir « Le lion a des ailes ». C’est un film à thèse, fait pour resserrer l’alliance franco-britannique. Les Anglais qui étaient derrière moi au cinéma, étaient ravis de voir leurs souverains sur l’écran. 
 Je vais souper chez Jean Mulliez avec ma tante Marthe qui est revenue pour quelques jours et avec mon oncle Alexandre et Trotty. Je couche chez eux et je suis bien contente d’éviter le retour, le soir, par un vent glacial.
-Lundi 29 janvier.
+### Lundi 29 janvier.
 J’envoie une pile électrique et quelques provisions à Henry qui, parait-il, est toujours au front. Au bureau de poste, je rencontre Paul Maquet qui revient de là-bas après une vie très pénible pendant 3 mois.
 Le Boulevard Vauban que je prends pour aller au cours, est transformé en patinoire et il faut faire véritablement de l’équilibre pour ne pas tomber. Il y a dans la région d très nombreuses intoxications dues à l’explosion des conduites de gaz. Maitre Derville, avocat à Lille, a été trouvé mort chez lui. Une conduite de gaz qui passait sous le trottoir, a éclaté et le gaz s’est répandu de cette façon.
 Je rencontre aujourd’hui en ville 2 Hindous avec un turban surmonté d’une pointe. Ils sont installés en grand nombre à Marcq et Marquette.
 
-Mardi 30 janvier.
+### Mardi 30 janvier.
 Daladier s’est adressé hier soir à la radio à ceux de l’arrière pour leur demander le travail et le sacrifice en union avec ceux de l’avant.
 Les scouts de France adoptent un torpilleur français ; le général Lafont a présidé la cérémonie de baptême.
 Pour remercier les soldats irlandais qui avaient donné un cadeau de Noël aux enfants des mobilisés, les habitants d’une commune des environs de Lille ont offert au régiment irlandais un fanion brodé aux couleurs de ce régiment.
 
-Mercredi 31 janvier.
+### Mercredi 31 janvier.
 Hitler fait un discours en réponse à celui de Daladier, il le prend à partie, lui disant qu’il se trouvera bientôt devant ces autrichiens et autres peuples conquis, dont il méconnait la force.
 Une mission scientifique française part à Londres pour coordonner les efforts franco-anglais, elle y retrouvera une délégation de parlementaires français.
 Je vais souper chez Mme Lesay, j’y rencontre sa nièce, Jeannette Brice, infirmière au Picardy à Paris-Plage. Il y a là-bas des malades depuis un mois ; au Picardy seulement, il y en a 300. Pour sa part, elle doit s’occuper seule de 30 malades puisque tous ont des grippes et des bronchites. Il y a 17 infirmières de la S.B.M. dans l’hôpital et plusieurs médecins qui s’occupent chacun d’une spécialité.
 C’est aujourd’hui le vrai dégel qui a commencé par rendre terriblement glissante la couche de glace accumulée depuis un mois. Presque tout le monde porte des chaussettes au dessus de ses souliers et les passants font des chutes à tous les coins de rue.
 
-Jeudi 1er février.
+### Jeudi 1er février.
 Michel porte aujourd’hui des galons d’élève aspirant dont il est très fier.
 Mr Chamberlain fait lui aussi un discours où il parle du formidable effort de de l’empire britannique.
 L’Union Régionale des Caisses d’Assurance Locales rue de Courtrai est détruite par un incendie.
 
-Vendredi 2 février.
+### Vendredi 2 février.
 Mademoiselle Charrondière, à qui je vais faire visite, me dit que les cours ne seront pas finis pour Pâques mais pour le début de mai. Cela compliquera beaucoup les choses, puisqu’il était prévu que je retournais à Annecy à Pâques.
 Aujourd’hui, fête de la Chandeleur, nous faisons nous-mêmes de très bonnes crêpes que nous mangeons toutes chaudes.
 Samedi 3 février.
 Aujourd’hui, c’est le dégel complet et un bon petit soleil déjà chaud fait présager le printemps.
 La conférence balkanique s’ouvre à Belgrade entre les 4 pays neutres de la péninsule.
 
-Dimanche 4 février
+### Dimanche 4 février
 Pendant la messe de 6h1/2 à la Treille survient une panne d’électricité et le chanoine Detrez ( ?) a bien de la peine à lire les oraisons à la lueur de 2 cierges. Au bout d’un moment, on lui en rapporte 2 autres et la messe se termine dans une atmosphère mystérieuse et recueillie. Je prends le train de 8h pour Wimereux et je suis à Ambleteuse à midi ½. Sur la route, on me demande plusieurs fois mon billet, ma carte d’identité, mon sauf-conduit. Heureusement, je suis en règle. Je trouve tout le monde en bonne santé. Mais le service est toujours fort compliqué, et je dois faire les frites avant de les manger. L’après-midi, je vais faire un tour aux environs. Au retour, Mme Bernard qui vient d’acheter un appareil de cinéma très moderne pour son foyer du soldat, nous en donne la primeur en nous faisant passer un très beau film sur le voyage du roi d’Angleterre en France.
 
-Lundi 5 février.
+### Lundi 5 février.
 Une bonne vient se présenter aux Dunes et Madame Henriette la gage séance tenante. Je crois que l’ordinaire va enfin s’améliorer.
 Je quitte Ambleteuse à 3h pour prendre à 4h un train à Wimereux. Après 2 heures d’attente à Calais, à cause de la suppression des trains rapides, je prends un omnibus qui met 3h1/2 pour de Calais à Lille, en s’arrêtant à toutes les stations. Heureusement, je fais la connaissance de mon voisin, Mr d’Aulnay, un homme charmant avec qui je bavarde tout le long de la route.
 En arrivant au Foyer, je n’arrive pas à ouvrir la porte avec ma clé. Heureusement, on vient m’ouvrir au bout d’un moment. Je trouve une carte de visite déposée par Jeanne Lefort ce matin.
 
-Mardi 6 février.
+### Mardi 6 février.
 Je reçois aujourd’hui un courrier abondant, une carte de Michel, il a eu la grippe mais compte bien quand même venir dimanche prochain, une lettre d’Henry qui est très mal logé aux environs de Metz, et une lettre de maman apportée par Madame Baratte qui est revenue à Lille pour quelques jours.
 
-Mercredi 7 février.
+### Mercredi 7 février.
 On récupère maintenant à Lille les vieilles ferrailles, les vieux papiers et les déchets. Ce sont les scouts et les éclaireurs qui se chargent de la collecte.
 Je vais souper chez les Lesay. Le poste de Stuttgart avait annoncé la veille que René Wauquiez allait parler à la T.S.F. A l’heure de l’émission, nous écoutons, mais on donne seulement la liste d’autres prisonniers dont quelques uns parleront plus tard, parait-il. C’est un moyen de procurer des auditeurs à Radio Stuttgart, mais d’autre part, le gouvernement français a fait savoir que les prisonniers qui parleront de cette façon, seraient passibles du conseil de guerre à leur libération.
 
 
-Jeudi 8 février.
+### Jeudi 8 février.
 L’article de tête de la Dépêche fait par Robert Allègre est complètement censuré. Seule parait la signature.
 Deux terroristes irlandais ont été pendus à Birmingham tandis que l’espion Roos est fusillé à Nancy. Ce dernier était un docteur très influent de Strasbourg, qui avait fourni à l’Allemagne des renseignements de 1ère importance.
 Je vois dans les journaux l’annonce de la naissance de Régis Vanderhaghen, fils de Gabriel et de Cécile, à Saint Lunaire.
 
-Vendredi 9 février.
+### Vendredi 9 février.
 On voit circuler en ville des autos anglaises surmontées d’un mât. Elles sont chargées de détecter les appareils émetteurs clandestins. On en a ainsi trouvé un dans un café de la place Rihour et les 2 individus qui ont été pris sur le fait ont été fusillés le lendemain.
 
-Samedi 10 février.
+### Samedi 10 février.
 Les Allemands lancent le bruit que le ministère Daladier va tomber à cause d’une interpellation sur la conduite de la guerre. La Chambre demande la discussion de l’interpellation au comité secret. Daladier est obligé d’accepter bien qu’il sache que les renseignements donnés en séance secrète seront sus de tous et surtout des Allemands. Les débats ont lieu et Daladier en sort avec un vote d’unanimité et un prestige considérablement renforcé. Je fais aujourd’hui une très grande tournée à pied, je la termine par une visite à l’hôpital Calmette qui est un établissement magnifique avec tout le confort possible et les derniers perfectionnements.
 Le soir, je vais préparer le souper de Michel qui m’avait annonçé son arrivée, je vais ensuite le chercher à la gare. A l’arrivée du train qui a 35 minutes de retard, je n’arrive pas à le reconnaitre dans le flot des militaires qui arrivent, je retourne à la maison dans le cas où il y serait arrivé, mais je ne le trouve pas non plus. Je rentre à 11 heures du soir au Foyer, fort déçue de ne pas l’avoir retrouvé.
 
-Dimanche 11 février.
+### Dimanche 11 février.
 Le président Roosevelt va envoyer un de ses représentants Mr Summer Wells en Europe pour s’entendre avec les neutres sur les problèmes de la paix future. Tous les pays y attachent une grosse importance et tout spécialement l’Allemagne qui affecte de s’en désintéresser.
 Jean Mulliez avait invité Michel et moi pour aujourd’hui. J’y vais seule mais j’y retrouve Trotty, assez inquiet pour son père qui a une congestion pulmonaire.
 Au moment de nous mettre à table, on entend dans la rue un coup de frein brusque suivi d’un choc. C’est un Anglais qui conduisait très vite comme tous ses compatriotes, a accroché une auto belge. Heureusement, il n’y a que des dégâts matériels.
 Je vais passer l’après-midi chez Mme Baratte qui est venue passer quelques jours à Lille et je retourne souper et coucher chez Jean Mulliez.
 
-Lundi 12 février.
+### Lundi 12 février.
 Les Français se sont aperçus, en interrogeant les prisonniers allemands que, de l’autre côté du Rhin, on était très mal renseigné sur la marche des opérations. Ils ont alors installé des haut-parleurs le long du Rhin pour diffuser les dernières nouvelles, sans commentaires.
 La 1ère fois, les Allemands sont sortis des casemates pour écouter, mais la seconde fois, les officiers les ont fait rentrer et ils ont tiré le canon pour couvrir le bruit de la voix.
 
-Mardi 13 février.
+### Mardi 13 février.
 Je reçois une lettre de Jeanne Lefort dont j’ai manqué la visite la semaine dernière. Elle m’a dit qu’elle a eu à Bailleul (en Normandie près deDouvrend) jusqu’à 60 centimètres de neige.
 Malgré le froid qui a recommencé depuis hier, nous allons visiter la Caisse d’Assurances Sociales « La Famille » à Roubaix. Tout est fait en grand, avec beaucoup d’ordre, de méthode et même parfois de luxe.
  
-Mercredi 14 février.
+### Mercredi 14 février.
 Je vais souper chez les Lesay avec leurs neveux et nièces, le ménage Henry Wauquiez et Mme Georges Wauquiez. Mr Lesay a entendu dire que, en cas de l’invasion de la Belgique, Lille ne serait plus évacué, mais ce serait un centre d’accueil et de triage d’où l’on enverrait tous les réfugiés dans l’Ile et Vilaine et le Massif Central.
 Henry Wauquiez nous dit que le moral est fort bas dans la ligne Maginot comme dans les usines. Il doit exagérer un peu et Mme Lesay en est toute scandalisée.
 
-Jeudi 15 février.
+### Jeudi 15 février.
 Je vais souper chez Mr et Mme Baratte qui me donnent un repas délicieux mais le service est simplifié, c’est le repas de guerre sans nappe avec 2 couteaux pour trois personnes.
 Ils me racontent que, à Salomé, près de Douai, le gardien d’un cimetière allemand avait installé un poste clandestin dans le caveau d’un officier allemand. Le gardien arrêté, a été fusillé.
 Des anglais de leur connaissance leur ont dit qu’un bateau anglais qui transportait des soldats a été coulé au large du Havre, il y a eu 200 morts mais naturellement les journaux n’en ont pas parlé.
 
-Vendredi 16  février.
+### Vendredi 16  février.
 J’envoie aujourd’hui à Henry un paquet contenant des provisions avec des lainages et une couverture. Il a demandé cela pour des soldats de son régiment qui ont vu flamber la baraquement contenant leurs vêtements, sacs, couvertures et mêmes leurs portefeuilles. L’un d’eux n’avait plus qu’une couverture à se mettre sur le dos.
 
-Samedi 17 février.
+### Samedi 17 février.
 Il a neigé pendant la nuit et la matinée et il y a dans les rues une couche de neige comme on n’en a jamais vu à Lille. Tous les autobus et une partie des tramways ne circulent plus. En rentrant le soir au Foyer, je trouve Michel qui était arrivé à Lille à 4 heures. On lui avait dit d’abord que je n’étais pas là, et fort désemparé, il était allé se faire inviter chez les Dubois et chez Jean Mulliez. Heureusement, il repasse le soir rue du Gros Gérard, nous allons ensemble souper chez les Dubois et ensuite au gala de la Catho à la Société Industrielle. Mais la revue est peu intéressante et la salle presque vide, la grande séance aura lieu demain dimanche.
 
-Dimanche 18 février.
+### Dimanche 18 février.
 Les Dubois sont à leur dernier sac de charbon, je leur propose d’en prendre à la maison, ils acceptent tout de suite.
 Michel est ravi, nous allons diner chez Jean Mulliez avec Trotty. Nous sommes très bien reçus. Je couds à Michel ses galons d’élève aspirant et nous allons faire visite aux Maurice, mais nous ne trouvons que Georges qui nous donne des nouvelles de tous. Je vais conduire Michel au train de 16h45 et je retourne souper et coucher chez Jean Mulliez.
 La T.S.F. annonce que l’Altmark, soit-disant bateau de commerce allemand, avait recueilli les prisonniers anglais faits par le « Graf von Spee ». Sur la demande de l’Angleterre, le bateau a été visité une première fois par les Norvégiens dans les eaux territoriales desquelles il se trouvait. La Norvège ayant refusé de pratiquer une seconde visite, un navire anglais, le « Cossack » a pénétré dans les eaux norvégiennes, a abordé l’Altmark dont les 400 prisonniers ont été libérés. Le poste de Stuttgart qualifie cela de banditisme et de piraterie, de violation de neutralité, pour faire oublier que l’Allemagne et la Norvège étaient dans leur tort.
 
-Lundi 19 février.
+### Lundi 19 février.
 En Finlande, la 1ère ligne Mannerheim a été enfoncée par les Russes, mais la seconde tient toujours. La France a envoyé là-bas du matériel et même une division.
 Ma tante Claire me dit qu’un agent de police est allé rue du Pont Neuf et ensuite à la Brasserie pour demander si on connaissait Jean Vanderhaghen qui avait été porté bon absent au Conseil de Révision. J’espère que l’affaire en restera là.
 Denise Leuridant, dont le frère revient du front, raconte qu’un groupe de soldats français, commandé par un lieutenant et chargé de servir un canon, voit arriver une patrouille allemande. Les Français s’apprêtent à tirer, mais le lieutenant s’y oppose. Un jeune soldat se précipite quand même sur le canon, tire, tue quelques Allemands et les autres se rendent, on s’aperçoit alors que le lieutenant était un Allemand déguisé.
 
-Mardi 20 février.
+### Mardi 20 février.
 Un détachement français est tombé dans une embuscade, il y a une vingtaine de tués et blessés.
 Je reçois une lettre d’Henry qui est maintenant à la frontière du Luxembourg. Comme les soldats n’ont pas de charbon pour se chauffer, ils se précipitent sur les trains qui arrivent et ils vident les locomotives.
 
-Mercredi 21 février.
+### Mercredi 21 février.
 La Suède se refuse absolument à aider la Finlande, en sortant de sa neutralité. Les Finlandais, dont la 1ère ligne a été enfoncée, réclament des renforts
 Jeu di 22 février.
 En arrivant à la maison, je trouve la cuisine inondée, et il y a eu une fuite d’eau au moment du dégel et je dois faire couper l’eau par la ville pour arrêter l’inondation.
 
-Vendredi 23 février.
+### Vendredi 23 février.
 Une auto militaire a tamponné une auto civile au coin du Boulevard Louis XIV et du Boulevard de la Liberté. Les 2 autos sont couchées sur le flanc à 10 mètres de distance. Il y a 3 blessés. Le choc a dû être terrible.
 
-Samedi 24 février.
+### Samedi 24 février.
 C’est ce soir qu’a lieu le changement d’heures à 2 heures du matin.
 Les Anglais ont survolé pour la seconde fois l’Autriche et la Bohème.
 
-Dimanche 25 février.
+### Dimanche 25 février.
 La princesse Marie José vient d’avoir une fille, la princesse Marie-Gabrielle.
 Je tente cet après-midi d’aller voir ma tante Geneviève à Estaimpuis. La douane française d’Herseaux est maintenant reportée à l’intérieur et on ne m’y laisse pas passer sans passeport.
 
-Lundi 26 février.
+### Lundi 26 février.
 Je rencontre ma tante Laure qui est installée chez les Derély parce qu’elle n’a plus de charbon à Cysoing. Elle m’invite à Cysoing pour le dimanche 10 mars.
 
-Mardi 27 février.
+### Mardi 27 février.
 Des avions allemands sont passés à 5 heures du matin au dessus de Roubaix pour y lancer des tracts. La D.C.A. a tiré sur eux et Odette Beren nous dit que le coup était si fort qu’elle pensait avoir entendu le tonnerre. Le général Gamelin est venu hier inspecter les troupes de frontière.
 
-Mercredi 28 février.
+### Mercredi 28 février.
 Des avions anglais ont survolé Berlin et ont même été jusqu’à la Baltique. D’autre part des avions allemands ont survolé le Nord de la France et ils ont essayé d’atteindre Paris, d’où l’on a tiré sur eux. La D.C.A. a tiré sur eux et un obus éclatant prés d’une bouche de métro a blessé 6 personnes.
 
-Jeudi 29 février.
+### Jeudi 29 février.
 Les Finlandais se battent énergiquement aux environ de Viborg, à l’assaut duquel se ruent les troupes soviétiques.
 Un torpilleur français le Simoun a éperonné un sous-marin allemand et l’a fait ainsi couler par le fond.
 Comme il n’y a presque plus d’alerte pour le moment, on a peur que les sirènes ne rouillent. A partir d’aujourd’hui, elles marcheront 30 secondes le jeudi à midi. Je passe la nuit à Tourcoing et madame Lesay me dit avoir entendu un fort coup de canon, suivi d’autres coups moins forts vers 5 heures du matin.
 
-Vendredi 1er mars
+### Vendredi 1er mars
 Le Conseil des ministres vient d’approuver de nouveaux décrets-lois : carte de rationnement pour le pain, réduction de la consommation de l’essence, fermeture des pâtisseries 3 jours par semaine, etc…
 Les studios Pathé sont détruits par un incendie à Joinville, alors qu’ils tournaient le film « Hitler m’a dit ». Y a-t-il eu oui ou non incendie criminel ?
 En faisant une tournée de visite, je découvre rue Gustave Delory, l’auberge « La Marmite » où, pour dix sous, on donne aux clients une paillasse pour la nuit, et, pour quelques sous, ils ont le droit de s’appuyer à une corde pour se reposer. Les locataires que je vois, ont des mines peu engageantes.
 
-Samedi 2 mars.
+### Samedi 2 mars.
 Henry m’a annoncé son arrivée en permission de détente pour la nuit de vendredi à samedi ou pour la suivante. Je vais donc coucher à la maison, mais je ne vois venir personne. Le soir, je vais à l’arrivée du train de Paris dans le cas où Michel y serait. Je l’y retrouve malgré l’obscurité et je l’emmène souper à la maison. Au moment où nous montons nous coucher, un coup de sonnette retentit, c’est Henry qui arrive à 11 heures au lieu de 2 heures du matin comme nous l’attendions. Il vient d’Audun le Roman et il est en route depuis 24 heures, sans être trop fatigué. Il mange un peu et nous allons nous coucher tous les trois dans une maison à peu près habitable.
 
-Dimanche 3 mars.
+### Dimanche 3 mars.
 Après un bon petit déjeuner à la maison, je vais demander aux Maurice s’ils peuvent nous recevoir. Ma tante Claire, encore assez fatiguée, nous attend et nous y retrouvons Maurice qui est à l’Etat Major de le D.C.A. depuis le début de la guerre. Nous allons faire visite aux Mulliez après le diner. Toute la famille est rentrée pour le mariage et Hugues est en permission. Lili qui s’installe à Lille cherche une voiture d’enfant pour promener sa fille. Nous lui proposons celle de la maison, elle vient le soir et la trouve tout à fait de son goût.
 Je reconduis Michel à la gare à 7 heures du soir et Henry va au collège se retremper dans l’atmosphère des jésuites.
 Un combat aérien a eu lieu entre avions belges et allemands, en territoire belge. Les Belges, plus nombreux, ont cependant été battus.
 C’était aujourd’hui la journée nationale pour le vin chaud du soldat. D’autre part, une troupe scoute a fait le tour du quartier pour ramasser les vieux papiers et les ferrailles qui puissent servir à la défense nationale. Ils avaient beaucoup de succès, ils étaient précédés d’une auto dont un haut-parleur hurlait des marches militaires entrecoupés de conseils de patriotisme, et ils étaient suivis d’un camion dans lequel venaient échouer tous les fonds de grenier du quartier. L’atmosphère était très gaie et le coup d’œil très pittoresque.
 
-Lundi 4 mars.
+### Lundi 4 mars.
 Mr Summer Wells a de nouveaux entretiens avec Hitler et Von Ribbentrop, mais il n’entrevoit aucun accord possible.
 Nous allons souper, Henry et moi, chez les Derély avec Mr Lefebvre et ses filles, nous y sommes reçus d’une façon charmante.
 
-Mardi 5 mars.
+### Mardi 5 mars.
 Henry vient passer un moment avec moi l’après-midi. Le père Wattel l’autorise maintenant à se promener avec moi et nous en profiterons demain pour aller à Tourcoing. J’apprends ce soir la mort de Mr Giard, le libraire, père de 13 enfants. On l’a trouvé mort ce matin dans la rue.
 
-Mercredi 6 mars.
+### Mercredi 6 mars.
 Je vais souper avec Henry chez les Lesay avec Odile Trancart et Marguerite Willeme. La soirée est très agréable.
 
-Jeudi 7 mars.
+### Jeudi 7 mars.
 Ferdonnet et Obrecht, les deux traitres de Stuttgart sont condamnés à mort par contumace.
 Je vais avec Henry faire visite à ma tante Germaine. Son mari est en permission. Il retrouvera demain son poste dans l’Oise.
 
-Vendredi 8 mars.
+### Vendredi 8 mars.
 Mr Summer Wells s’est entretenu avec Mr Lebrun et Daladier, mais les journaux ne soufflent mot de ce qui a été dit.
 Henry qui est de nouveau en militaire, vient me chercher au Dispensaire et nous allons goûter ensemble en ville. Il y a beaucoup d’animation dans les rues avec les Ecossais, les Anglais, les Hindous, etc…Le soir, je vais avec quelques autres conduire Antoinette Suin à St Philibert, où elle doit être en observation.
 
-Samedi 9 mars.
+### Samedi 9 mars.
 Sous la pression de l’Allemagne, la Suède tente une médiation entre la Russie et la Finlande, mais les conditions proposées par l’U.R.S.S. sont plus dures que les précédentes.
 Je vais féliciter avec Henry au mariage de Nina Mulliez. La mariée était en blouse avec beaucoup de simplicité, mais beaucoup de chic et avec le mari très chic officier, cela faisait un couple très sympathique.
 Je vais diner ensuite avec Henry à la maison et je l’embarque au train de Paris à 7h du soir.
 
-Dimanche 10 mars.
+### Dimanche 10 mars.
 Mr Von Ribbentrop part aujourd’hui pour Rome, où il doit avoir des entretiens avec le gouvernement Italien et même avec le pape.
 Je suis invitée aujourd’hui à passer la journée à Cysoing. En arrivant chez les Derély, qui doivent m’y conduire en auto, les sirènes se mettent à marcher, mais la sirène qu’on entend place du Concert ne donne pas la modulation et on ne sait pas si c’est le début ou la fin de l’alerte. En tous cas, il y a une grande activité d’aviation. Je vais avec Armel Derély à une messe à la Treille, à la mémoire des morts de la guerre. Deux énormes banderoles aux couleurs françaises et anglaises tombent de la voute et la cérémonie présidée par le Cardinal Liénard, a lieu devant le Préfet, les officiers d’état-major français et anglais, des délégués de tous les gouvernements et une forêt de drapeaux.
 En sortant de la messe, l’alerte est terminée et on voit dans le ciel de grandes trainées blanches faites par les émissions de fumée des avions.
 Nous partons ensuite à Cysoing. Sur la route, nous voyons plusieurs rangées de tranchées, de fossés anti –char creusés par les Anglais.
 Après un diner très gai, nous voyons arriver Basile Brook, un jeune officier écossais qui vient faire un tour dans la propriété où il a habité 4 mois. Il parle assez bien le français avec un petit accent anglais très amusant. Nous voyons aussi d’autres officiers écossais avec la jupe et le béret et de nombreux soldats qui ont leur campement dans l’aller menant au chalet dans le jardin du bungalow, on a creusé 2 abris pour canon, tout est prévu, les murs sont garnis de sacs de sable, mais les canons ne sont pas encore installés.
 
-Lundi 11 mars.
+### Lundi 11 mars.
 Henry doit arriver ce matin à Annecy. Je reçois une lettre de maman et une autre de Michel qui me disent tous deux que ma tante Claire Pineau peut me recevoir à Paris quand je voudrai.
 Je passe toute ma matinée auprès d’Antoinette Suin. Son opération a été retardée de 2 heures et je tâche de lui faire trouver le temps un peu moins long. J’assiste ensuite à son réveil qui est fort pénible, elle souffre beaucoup.
 Je reçois tout à l’heure la visite de Madame Lesay. Elle trouve ma chambre très coquette.
 Je vais ce soir à Saint Philibert passer la nuit avec Antoinette Suin, elle est assez calme et souffre moins.
 
-Mardi 12 mars.
+### Mardi 12 mars.
 A Rome, Von Ribbentrop a eu un entretien avec le roi d’Italie et avec le pape. Sa visite au Vatican a duré plus de 2 heures et en sortant de chez Pie XII, il a été pris de malaise passager.
 Aujourd’hui est le 1er jour où les patinoires sont fermées, les pâtisseries ont remplacé les gâteaux de leurs étalages par des pots de confiture ou des bouteilles de sirop.
 
-Mercredi 13 mars.
+### Mercredi 13 mars.
 Sous la pression de la Suisse et de l’Allemagne, la Finlande est obligée de traiter avec Moscou, mais les Finlandais considèrent ce traité comme un deuil national.
 Je vais souper chez les Lesay et Mme Lesay m’invite à la prise d’habit de Brigitte qui aura lieu le 26 avril.
 
-Jeudi 14 mars.
+### Jeudi 14 mars.
 Aujourd’hui a lieu la clôture de la retraite à la Catho, mais je suis trop occupée par mes préparatifs de départ pour pouvoir y aller.
 Ce matin, il fait doux puis il tombe quelques averses torrentielles. A midi, on entend le tonnerre avec quelques éclairs. L’après-midi, il y a une terrible tempête de neige comme on n’en voit jamais à Lille.
 
-Vendredi 15 mars.
+### Vendredi 15 mars.
 Les Finlandais sont consternés de la paix qui vient d’être conclue, tandis qu’en France, le gouvernement est interpellé sur ce sujet. Mr Lebrun a visité le front lorrain et les usines de guerre de l’est.
 
-Samedi 16 mars.
+### Samedi 16 mars.
 Je suis décidée à demander un sauf-conduit pour Paris et à expédier une malle. Je cours toute l’après-midi de Saint Sauveur à Saint Philibert voir Antoinette Suin, à la maison et à La Madeleine.
 Le soir je déménage complètement ma chambre.
 Les pays scandinaves s’unissent un peu tard pour conclure un pacte défensif.
 
-Dimanche 17 mars.
+### Dimanche 17 mars.
 Je me lève à 4h1/2 pour aller à la messe de 6 heures et prendre le train de 7 heures pour Neufchatel.
 En changeant de train à Serqueux, j’ai tout le loisir d’étudier le costume d’une petite infirmière anglaise en permission, manteau gris à revers rouge, bas noirs, souliers noirs, chapeau gris garni de ruban aux couleurs anglaises, visage anguleux avec lorgnon, c’est vraiment le type de l’infirmière sur lequel sont calquées toutes les autres.
 A mon arrivée à Neufchatel, il tombe une petite pluie fine, la vraie pluie de Normandie.
 Une attaque aérienne allemande a eu lieu aujourd’hui à Scapa Flow. Les dégâts matériels sont minimes, il y a eu 7 soldats tués, mais les Allemands annoncent des dégâts beaucoup plus considérables.
 
-Lundi 18 mars.
+### Lundi 18 mars.
 Je vais avec Jeanne nettoyer l’église de Neufchatel, qui a été habitée par des pigeons depuis 6 mois. Je me mets ensuite à faire une jupe, pour renouveler ma garde-robe.
 Pendant que Mr Sumner Wells revient en Italie pour faire visite au pape, Mussolini et Hitler se rencontrent sur la frontière italienne. Rien ne transparait de l’entretien et les journalistes se livrent à toutes sortes de conjectures.
  
-Mardi 19 mars.
+### Mardi 19 mars.
 Il y a aujourd’hui une récollection des Dames de la Ligue à Londinières, je vais à la messe et à une instruction. Entre temps, Pierre Dumon envoie un télégramme et il annonce son retour pour midi. Mon oncle Léon ne le trouve pas au train et Pierre arrive seulement à 9h du soir.
 Nous allons à un salut à Neuville, le Chemin de Croix à la lueur des bougies et le retour par le clair de lune sont très pittoresques.
 
-Mercredi 20 mars.
+### Mercredi 20 mars.
 Les Anglais répondent au bombardement de Scapa Flow en attaquant l’Ile de Sylt. Pendant 6 heures cette nuit les avions anglais sont venus toutes les ½ heures lancer des bombes sur la base navale et la digue Hindenburg. Le matin, des avions en reconnaissance photographique ont pu constater les résultats.
 Au vote de la chambre hier soir, Daladier a obtenu 300 voix contre une, et 300 bulletins blancs. Il a donné sa démission ce matin et Paul Reynaud a été chargé par Mr Lebrun de former le nouveau cabinet après le refus de Daladier d’être de nouveau Président du Conseil.
 
-Jeudi 21 mars.
+### Jeudi 21 mars.
 Ghislaine fait aujourd’hui sa 1ère communion à l’église de Clais, pendant la permission de Pierre.
 Le nouveau cabinet est constitué sous la présidence de Paul Reynaud, il comprend beaucoup d’anciens ministres du cabinet Daladier. 
 
-Vendredi 22 mars.
+### Vendredi 22 mars.
 Le ministère Paul Reynaud se présente aujourd’hui devant les Chambres, mais il obtient seulement 268 voix, il y a de nombreuses abstentions.
 Pendant ce temps, profitant de la crise politique en France, un pacte italo-germano-soviétique est en train de se conclure à propos de la question balkanique.
 
-Samedi 23 mars.
+### Samedi 23 mars.
 Maurice, Jeanne et moi allons passer l’après-midi à Dieppe où il y a beaucoup de mouvements à cause de la semaine anglaise du marché, etc…Il y a beaucoup d’officiers et surtout beaucoup d’infirmières anglaises toutes plus laides les unes que les autres.
 
-Dimanche 24 mars.
+### Dimanche 24 mars.
 Je reçois une lettre collective écrite par Jean et Léon. Jeanne et moi, nous leur répondons ce soir du tac au tac.
 Le pape a parlé aujourd’hui à la radio. Il a souhaité une paix juste basée sur le droit. Son discours a été suivi d’une bénédiction avec indulgence plénière que nous n’avons malheureusement pas écoutée.
 
-Lundi 25 mars.
+### Lundi 25 mars.
 Branly, l’inventeur de la T.S.F. est mort hier soir. Le gouvernement décide de lui faire des funérailles nationales.
 Pierre et Marie rentrent de soir d’Hesdin, où ils ont été passer 3 jours chez leurs parents.
 
-Mardi 26 mars.
+### Mardi 26 mars.
 Je prolonge mon séjour chez les Lefort pour y rencontrer Mr Tacquet qui part à Nantes voir ses petits-enfants. Depuis la guerre, il est rétabli dans ses fonctions de juge à Lille. Il a bon moral et met toute sa confiance dans Paul Reynaud.
 J’entends justement ce soir à la T.S.F. un discours du Président du Conseil. Il fait remarquer que depuis 7 mois de guerre, la France n’a pas vu l’envahissement qu’elle a connu dans presque toutes les autres guerres. Mais cela ne lui suffit pas pour vaincre et il lui faut des armements qui lui seront fournis par les bons d’Armement.
 Je pars de Neufchatel ce matin par la tempête pour arriver à Ambleteuse avec un beau soleil. Il y a toujours autant de mouvements en mer et dans les airs. Mais on me raconte quelques accidents dont on n’a jamais parlé dans les journaux. Un hydravion qui décollait maladroitement de la rade de Boulogne a heurté la digue contre laquelle il s’est écrasé. Sur les 3 occupants, on n’a retrouvé qu’un seul corps, les autres ayant été projetés dehors.
 A Saint Inglevert, un avion qui passait trop bas a décapité un lieutenant qui se tenait sur le champ d’aviation. Deux autres hommes qui se sont baissés n’ont pas été touchés…
 Je suis passé en chemin de fer près des usines de ciment de Dames Camier. Elles marchent à plein rendement. Tout autour, des soldats qui y travaillent sont logés dans des baraquement en tôle ondulée ou dans des tentes qui sont très nombreuses aux environs de l’usine.
  
-Jeudi 28 mars.
+### Jeudi 28 mars.
 L’ambassadeur des Soviets à Paris, après avoir envoyé à Moscou un télégramme injurieux pour la France, se voit « rendre sa liberté » par le gouvernement français qui ne veut plus avoir à faire à lui.
 Ma tante Henriette va aujourd’hui à Wisques au sacre de l’abbesse qui remplace sa tante. Elle reste en panne près de Guines et doit revenir en chemin-de-fer.
 Je vais me promener dans les dunes avec les enfants. Nous voyons à la Pointe aux Oies une mine échouée.
 
-Vendredi 29 mars.
+### Vendredi 29 mars.
 Des quantités de bateaux : paquebots, chalutiers, bateaux de guerre, passent devant Ambleteuse, entrant ou sortant de Boulogne. De nombreux avions les survolent, c’est probablement un convoi qui amène ou emmène des navires de toutes sortes.
 Les Antoine Bernard viennent diner. A partir de midi, le vent se lève et il fait ce soir une tempête terrible.
 Un conseil franco-anglais a eu lieu hier soir à Londres. D’importantes décisions y ont été prises sur la conduite de la guerre.
 
-Samedi 30 mars.
+### Samedi 30 mars.
 Une très forte détonation a réveillé beaucoup de monde cette nuit, probablement une mine qui a sauté au large.
 A 11 heures, on signale une mine échouée sur la plage à marée basse. Nous tentons d’approcher, mais une sentinelle qui fait les 100 pas sur la plage nous empêche de passer. On aperçoit une autre mine qui flotte un peu plus loin.
 A 2 heures, un soldat vient donner l’ordre d’évacuer la villa car la mine qui avait été attachée par les prisonniers allemands, s’est détachées et flotte entre les rochers du fort. Un soldat vient réitérer j’ordre de partir immédiatement et nous allons nous réfugier au Chalet.
 A 5 heures, on entend une nouvelle détonation, nous nous précipitons, c’est la mine qui a sauté en mer, mais la mine la plus proche est maintenant échouée à côté du fort. Nous rentrons souper à la villa pendant que la mer se retire. Le soldat de garde nous dit qu’on donnera l’alerte vers 5 heures du matin, à la marée haute, pour faire évacuer les villas de la digue. Plutôt que d’être dérangé à cette heure matinale, nous nous partageons pour loger soit à l’hôtel, soit au Chalet Notre Dame.
 
-Dimanche 31 mars.
+### Dimanche 31 mars.
 A 9 heures, la mine est toujours là et on ne sait pas quand le désamorçage a lieu. Je vais m’occuper du diner avec Pierrot, tout en étant prête à partir au 1er signal. A midi moins ¼, au moment de nous mettre à table, la sentinelle vient nous dire de partir. Nous allons sur la digue voir l’opération et un soldat arrive avec un grand tube de cuivre retiré de la mine, c’est l’amorce qui est enlevée. Nous dinons en vitesse et je pars à une heure moins ¼ avec les Bernard pour Wimereux où je prends le train de Paris. A l’arrivée à la gare du Nord, je trouve ma tante Claire à la sortie et toute la soirée nous attendons Michel qui s’est annoncé, mais qui n’arrive toujours pas.
 
-Lundi 1er avril.
+### Lundi 1er avril.
 Michel arrive ce matin à 9 heures après une très nonne journée passée à Pontoise avec Léon Dubus. Il part ce soir pour Lille faire une course et en revenir demain à la 1ère heure. Il me donne des détails sur la vie à Annecy.
 
-Mardi 2 avril.
+### Mardi 2 avril.
 Michel revient de Lille ce matin pour être à Romainville à midi. Etant passé par le Service Social, je manque sa visite, mais il est bien reçu par ma tante Claire.
 
-Mercredi 3 avril.
+### Mercredi 3 avril.
 Mr Chamberlain fait une déclaration aux Communes, il annonce que le blocus contre l’Allemagne va être renforcé. Cette nuit, a eu lieu le recensement de la population en vue de distribuer les cartes d’alimentation.
 La déclaration pour la consommation du charbon a été faite quelques jours plus tôt. A Paris, on a supprimé le chauffage dans tous les bâtiments publics, et on conseille de le faire dans les bâtiments privés.
 
-Jeudi 4 avril.
+### Jeudi 4 avril.
 Thérèse arrive aujourd’hui d’Ambleteuse avec Pierrot. Je vais les chercher à la gare du Nord. En attendant l’arrivée du train, je vois débarquer de nombreux coloniaux en civils, encadrés par des officiers. Ce sont des jeunes marocains qui arrivent pour faire leur service militaire en pardessus et chéchia ou turban, une valise à la main. Certains même avaient la tunique des indigènes de ce pays, le coup d’œil était très pittoresque.
 En revenant de la gare de Lyon où j’ai été conduire Thérèse, je vois un agent de police en casque et tunique blanche probablement la nouvelle tenue de nuit pour être vu malgré l’extinction des lumières.
 
-Vendredi 5 avril.
+### Vendredi 5 avril.
 Etant à Saint Denis pour faire des visites, j’entre dans la basilique : les vitraux n’ont pas été enlevés mais tous les tombeaux sont recouverts de montagnes de sacs de sable qui s’élèvent par endroit jusqu’au haut des piliers. La crypte est fermée « aussi » pendant la guerre, elle est « ensablée » comme me dit la chaisière.
 
-Samedi 6 avril.
+### Samedi 6 avril.
 J’envoie à Michel une pile électrique, accompagnée d’un colis de nourriture.
 
-Dimanche 7 avril.
+### Dimanche 7 avril.
 La température s’adoucit sérieusement et elle nous permet de faire une excellente promenade dans le parc de Saint-Cloud et de visiter l’exposition la Manufacture de Sèvres.
 
-Lundi 8 avril.
+### Lundi 8 avril.
 Je vais ce soir au théâtre voir avec ma tante Claire les « Cloches de Corneville ». Il y a moins de monde et d’élégance qu’en temps de paix : quelques militaires, pas d’étrangers. A la fin de la représentation, l’orchestre joue La Marseillaise et le « God Save the King ». Des autobus attendent les voyageurs à la sortie pour leur permettre de rentrer chez eux, malgré l’arrêt pour la nuit des moyens de transport. Cependant, in n’est que 11 heures du soir, mais c’est la guerre.
  
-Mardi 9 avril.
+### Mardi 9 avril.
 Je fais un stage à l’hôpital Saint Louis, où tous les services : médecine, internat, laboratoire sont assurés par les femmes, les médecins étant mobilisés.
 Le journal de ce matin annonce que les alliés ont posé des mines le long des côtes de Norvège pour renforcer le blocus. L’Allemagne, à qui l’on coupe ainsi les débouchés les minerais de fer, envahit le Danemark et occupe certaines villes de Norvège. La situation est très grave.
 Le cardinal Verdier est mort ce matin, à la suite d’une embolie, après une légère opération. Je vais faire visite à Mère Espanet : elle me raconte que pour avoir la permission de rester à Paris, le Sacré Cœur a dû établir un poste de secours. Les Mères ont eu la permission de sortir de la clôture pour faire le diplôme d’auxiliaire, passer un examen, essayer le masque à gaz…
@@ -1052,122 +1052,122 @@ Mercredi 10 avril.
 Le Danemark a cédé sans résistance à la pression allemande tandis que la Norvège décrète la mobilisation générale. Malgré cela, les Allemands sont déjà à Oslo, Trondheim, Bergen.
 Une grande bataille navale à laquelle participent les Français, les Anglais, les Norvégiens et les Allemands est en train de se dérouler le long des côtes de Norvège.
 
-Jeudi 11 avril.
+### Jeudi 11 avril.
 Les nouvelles de Norvège et du Danemark sont assez confuses. On annonce la perte de plusieurs navires allemands et certaines villes de Norvège auraient été reprises aux Allemands.
 Je vais à l’archevêché voir le cardinal Verdier sur son lit de mort, je fais la queue pendant 1 heure, nous avions déjà essayé hier mais nous avions renoncé à cause de la foule.
 
 
-Vendredi 12 avril.
+### Vendredi 12 avril.
 Plusieurs personnes ont entendu tirer le canon cette nuit, pendant ½ heure parait-il. Mais je dormais et je ne me suis rendu compte de rien.
 Les journaux publient le bilan de la grande guerre navale qui se déroule : 18 navires allemands ont coulé, 4 anglais et pas de français.
 Le gouvernement Norvégien s’étant réfugié de Oslo à Hamar et à Erzurum : Hamar vient d’être repris aux Allemands.
 
-Samedi 13 avril.
+### Samedi 13 avril.
 La Suède, en prévision d’une invasion allemande, évacue 3 villes importantes. En Allemagne, l’officier qui s’était opposé à l’expédition en Norvège a été fusillé.
 Les permissions sont supprimées en France. L’Italie rappelle des classes de réserve. On craint une attaque le long de la ligne Maginot. L’heure est grave.
 Je vais ce soir chez les Maille avec ma tante Claire. A midi, ma tante Adrienne nous avait donné des nouvelles d’Arras qui est rempli d’Anglais et aussi d’espions allemands. Le quartier général anglais est à Blangy, mais il est question qu’il déménage ces jours-ci. Deux soldats anglais ont été assassinés par des espions allemands qui leur ont pris leurs uniformes.
 Le canon a encore été entendu à Paris cette nuit.
 
-Dimanche 14 avril.
+### Dimanche 14 avril.
 A la T.S.F. les Italiens félicitent l’Allemagne d’avoir été protégé les Norvégiens et elle ne parle que des « victoires » de l’Allemagne en Scandinavie.
 Nous allons ce soir voir Madame Sans-Gêne au Théâtre Français. Beaucoup de monde mais pas de toilettes. Au Foyer, les statues sont recouvertes de sacs de sable.
 
-Lundi 15 avril.
+### Lundi 15 avril.
 Les Anglais ont complété le barrage de mines qu’ils avaient déjà fait en le continuant en face des cotes allemandes de la Baltique. Cela représente un travail énorme qui bloque complètement l’Allemagne du coté de la mer.
 
-Mardi 16 avril.
+### Mardi 16 avril.
 Les 1ères troupes anglaises ont débarqué en Norvège et ont repris Narvik aux Allemands.
 Les obsèques du Cardinal Verdier ont eu lieu ce matin, malgré la guerre, il y avait 4 cardinaux et 60 évêques. L’après-midi, j’essaie de défiler devant le catafalque qui est exposé à Notre-Dame, j’y renonce en voyant la foule qui doit passer avant moi.
 Etant à 6h1/2 à l’Arc de Triomphe, je vois ranimer la flamme par les Anciens Combattants des chars d’assaut.
 
 
-Mercredi 17 avril.
+### Mercredi 17 avril.
 Les Iles Féroé sont occupées par les Anglais. On vient de découvrir un complot fait par des agents allemands pour enlever le roi de Norvège, un autre pour enlever le jeune roi de Yougoslavie.
 Dans ce pays, il y a des quantités de touristes allemands, munis de passeports en règle et on craint qu’ils se transforment en soldats pour tenter un coup de main.
 Edouard Delétoile vient diner à l’improviste. Il vient de Senlis et part pour 6 semaines à Montlhéry dans les autos-mitrailleuses. Il est chargé de 2 énormes sacs remplis de toutes sortes de choses qui lui donnent un certain confort, mais il a bien de la peine à porter tout cela tout seul et il est obligé de prendre un taxi.
 
-Jeudi 18 avril.
+### Jeudi 18 avril.
 Ma tante Claire est partie à Lardy ( ?) pour la journée.
 
-Vendredi 19 avril.
+### Vendredi 19 avril.
 Au cours d’une tournée de visite, je rentre au Panthéon où je vois les tombeaux de Voltaire, Rousseau, Victor Hugo, etc …J’entre ensuite à Notre-Dame où les vitraux de valeur ont été enlevés et remplacés par du mica. Le chapeau du Cardinal Verdier est suspendu sous la voute avec 4 autres chapeaux de cardinaux.
 
-Samedi 20 avril.
+### Samedi 20 avril.
 Les premières troupes en débarquées en Norvège, tandis que les allemands continuent à y envoyer 2000 hommes par jour. Ceux-ci arrivent en avion.
 Mr Paul Raynaud à la Chambre un vote d’unanimité sur la conduite de la guerre : ceci se passait en comité secret naturellement.
-Dimanche 21 avril.
+### Dimanche 21 avril.
 Les premiers échanges de prisonniers civils ont eu lieu la semaine dernière. Quelques femmes et une douzaine d’enfants qui passaient leurs vacances en Allemagne sont revenus en France et autant d’Allemands sont retournés en Allemagne.
 Nous allons aujourd’hui passer la journée à Fontainebleau. Nous voyons le château et la foret. Partout, l’on y voit des officiers et élèves-officiers de l’école Militaire d’Artillerie et on entend continuellement des exercices de tir.
 
-Lundi 22 avril.
+### Lundi 22 avril.
 Je vais diner chez Mme Corbel, son mari qui est maintenant général, est en ce moment à Beyrouth pour organiser le Service de Santé de l’Armée de l’Orient.
 Après une visite au Pré-St Gervais, je vais étudier le reste de l’après midi aux Buttes Chaumont où il fait un temps délicieux.
 
-Mardi 23 avril.
+### Mardi 23 avril.
 On annonce des succès considérables remportés par les alliés en Norvège, bien que les Allemands aient déjà là-bas 60 000 hommes.
 Cette nuit, vers minuit, j’entends tirer la canon de la D.C.A. pendant ¼ d’heure. Les détonations assez fortes au début, vont en diminuant. Dans le lointain, on entend vaguement le bruit d’un moteur d’avion qui s’éloigne assez vite. Mais l’alerte n’est pas donnée.
-Mercredi 24 avril.
+### Mercredi 24 avril.
 Hier a eu lieu au Quai d’Orsay la réunion du Conseil Supérieur de la Guerre. Mr Chamberlain était venu d’Angleterre pour la circonstance
 
-Jeudi 25 avril.
+### Jeudi 25 avril.
 La Suède se sent de plus en plus menacée par l’Allemagne. Elle proteste contre les violations de territoire de plus en plus nombreuses et elle s’attire des reproches de la part de l’Allemagne sur sa neutralité.
 Je prends le train à 12h45 pour Tours. Je vois ma tante Gabrielle un bon moment ce soir.
 Il y a eu ici une alerte de nuit il y a 2 jours, la seule alerte depuis le début de septembre, à part un essai des sirènes au début de la guerre.
 Le noviciat est transformé en hôpital. Il y a 12 malades.
 
-Vendredi 26 avril.
+### Vendredi 26 avril.
 J’assiste aujourd’hui aux vœux de Brigitte Lesay : très belle cérémonie présidée par Monseigneur Gaillard, évêque de Tours.
 Je vais diner à l’hôtel de l’Univers avec la famille Lesay.
 Mr Lesay me raconte que son neveu René Wauquiez a été jugé par contumace à 2 ans de prison pour désertion de poste. Mme Wauquiez, sa mère, a eu connaissance officielle du jugement, sans aucun détail complémentaire.
-Samedi 27 avril.
+### Samedi 27 avril.
 Après une journée passée à Marmoutier, Mr et Mme Lesay m’emmènent diner à Tours à l’hôtel de l’Univers où nous avons un repas délicieux.
 Je vois l’après-midi, Madeleine Duriez qui me raconte que son frère qui a vu des avions allemands poser des mines aimantées la nuit dans le chenal du port de Dunkerque. Les avions volent très bas, arrêtent leur moteur, piquent vers la mer, déposent leurs mines, remettent leur moteur en marche et s’envolent bien avant que la D.C.A. ait même pu les repérer.
 Monsieur Lesay me dit qu’une fois de plus, il y a 15 jours on a cru à l’invasion de la Belgique. Tout était prêt pour le passage des troupes alliées pour défendre le pays, on avait même ouvert les barrières à la frontière.
 
-Dimanche 28 avril.
+### Dimanche 28 avril.
 La grande rue de Tours est très animée par les soldats et les promeneurs. Les ministères ont installé une partie de leurs bureaux à Tours et aux environs et on a à cause de cela sérieusement renforcé la D.D.A.
 Je quitte Tours à 4h avec une sœur que je dépose rue St Dominique, après avoir eu beaucoup de mal pour monter dans un taxi à Austerlitz où on se les disputait.
 Edouard Delétoile rentre d’Arras où il a été dire au revoir à ses parents avant de partir dans une destination inconnue. Lettre d’Henry qui est toujours dans un secteur très mouvementé.
-Lundi 29 avril.
+### Lundi 29 avril.
 Je rencontre Françoise Zider dans une pâtisserie et nous prenons rendez-vous pour aller au théâtre la semaine prochaine.
 Je reçois la visite de la générale Dosse qui me donne des nouvelles d’Annecy.
 
-Mardi 30 avril.
+### Mardi 30 avril.
 Il y a en France de nombreux départs de troupes pour la Norvège. L’embarquement a lieu à Brest le plus souvent, les troupes débarquent en Angleterre, la traversent, et vont de nouveau d’Ecosse en Norvège.
 
-Mercredi 1er mai.
+### Mercredi 1er mai.
 Le journal de ce soir annonce que les Allemands n’ont pas avancé depuis 2 jours. Les débarquements anglais et français continuent. J’assiste à un défilé des troupes coloniales et des fusillés marins qui vont ranimer la flamme du soldat inconnu. Ils sont très applaudis par une foule nombreuse.
 
-Jeudi 2 mai.
+### Jeudi 2 mai.
 Les Anglais avouent que la lutte est dure en Norvège. On n’obtiendra la victoire qu’après un très grand effort.
 A cause de la guerre, l’Ascension n’est pas un jour férié, mais on doit laisser aux travailleurs la possibilité d’aller aux offices religieux Après 2 jours à l’Institut Fournier, je prends le train pour Versailles. Je ne peux visiter ni le château, ni le parc qui sont fermés, mais je trouve bien suffisant pour aujourd’hui de me promener au Grand et Petit Trianon. je vais ensuite faire visite aux ttes Marcelle et Marie Louise Thellier.
-Vendredi 3 mai.
+### Vendredi 3 mai.
 En Norvège, les Allemands ont fait la jonction entre Oslo et Trondjen. Les alliés ont dû évacuer ce port où on ne se bat plus maintenant qu’à Narvik, mais les Anglais envoient des troupes en Méditerranée.
 Je vais ce soir avec ma tante Claire et Françoise Geder voir « Ondine » à l’Athénée. C’est une légende nordique mis en scène avec des décors splendides et de très bons acteurs.
 
-Samedi 4 mai.
+### Samedi 4 mai.
 Les Alliés débarquent en un autre point de Norvège. D’autre part, les Anglais détournent leur trafic commercial de la Méditerranée, pour passer par Le Cap.
 
-Dimanche 5 mai.
+### Dimanche 5 mai.
 Aujourd’hui, fête nationale de Jeanne d’Arc, le défilé militaire est à peine annoncé dans les journaux. J’y vais à tout hasard et j’assiste à un grand déploiement de forces : aviateurs, cyclistes, infanterie, tanks, autos-mitrailleuses, garde républicaine, pompiers. Tout le monde est ému et les applaudissements sont nombreux. L’après-midi, je prends le train pour Lille et je me réinstalle au Foyer.
 
-Lundi 6 mai.
+### Lundi 6 mai.
 Il y a eu à Lille il y a 2 jours une alerte, la 1ère alerte de nuit, qui a beaucoup ému les Lillois. Des avions allemands volaient très bas, parait-il et l’alerte a été donnée après que le canon s’était fait entendre.
-Mardi 7 mai.
+### Mardi 7 mai.
 La situation est toujours tendue en Méditerranée. Je m’installe aujourd’hui dans ma nouvelle chambre où je peux enfin installer toutes mes affaires.
 
-Mercredi 8 mai.
+### Mercredi 8 mai.
 Monsieur Chamberlain avoue l’échec de Norvège à la Chambre des Communes qui lui demandent des explications sur cette affaire.
 Je vais souper à Tourcoing. Mme Lesay me raconte qu’une religieuse du couvent de ….. en Belgique a fait prendre un espion. Il s’était présenté à la porterie pour demander des renseignements sur le pays, la supérieure est venue lui parler et la police immédiatement alertée est venue l’arrêter à la sortie.
 Un autre Allemand qui vivait depuis longtemps avant la guerre à Paris-Plage et qui y fréquentait la haute société, a été repéré, arrêté, convaincu d’espionnage et fusillé 15 jours plus tard.
 
-Jeudi 9 mai.
+### Jeudi 9 mai.
 On tire le canon cette nuit vers 4 heures du matin. Il y a maintenant de plus en plus d’Anglais à Lille, La Madeleine, Tourcoing. Sur les remparts, on voit maintenant quelques canons camouflés et le tentes sous lesquelles couchent leurs servants.
 Je vais diner chez les Jean Mulliez qui partent demain au Tréport. A 10h1/4, j’entends un avion dans le lointain, 2 minutes après, l’alerte est donnée. Nous nous précipitons pour éteindre les lumières et en regardant par la fenêtre, nous voyons des feux de projecteurs très nombreux et très forts qui balaient le ciel, le canon tourne et on peut suivre la trajectoire des obus de D.C.A. qui laissent une trainée lumineuse. 
 Le ministère Chamberlain, après l’échec ce Norvège, est mis en demeure de démissionner ou de ….. 
 L’alerte dure 50 minutes.
 
-Vendredi 10 mai.
+### Vendredi 10 mai.
 A 4 heures du matin, je suis réveillé par un bruit anormal, une minute après, l’alerte est donnée. On entend plusieurs avions qui se rapprochent puis s’éloignent pendant une heure. La D.C.A. s’acharne sur les appareils et les mitrailleuses se mettent de la partie. La nuit est magnifique et on voit les balles lumineuses de mitrailleuses qui montent à un rythme régulier. Je me rendors au bout d’une heure, en voyant l’alerte terminée mais on ne sonne la fin qu’à 6 heures.
 A cette heure-là, j’apprends l’entrée des Allemands en Hollande à 3 heures du matin, en Belgique à 5 heures. Après l’invasion, ils ont envoyé à chaque pays, un mémorandum où il est dit qu’ils entrent pour protéger de l’attaque franco-anglaise, que parait-il on vient de découvrir.
 De 8h15 à 8h45 alerte et D.C.A.  C’est la 2ème alerte. Je vais ensuite à la gare prendre un renseignement. La ville est extrêmement calme et vide, on n’y voit plus un des soldats qui l’animaient tant d’habitude. Seule la gare est remplie de permissionnaires rappelés immédiatement. Je suis à la maison pendant la 3ème alerte de 11h15 à 12h15.
@@ -1182,7 +1182,7 @@ A Lille, pendant la nuit dernière, une fusée a été lancée de terre aux envi
 La fin de l’alerte sonne à l’instant, il est 10h10.
 Je viens d’installer des matelas à la cave et il est convenu que si une alerte a lieu la nuit, nous y descendons toutes pour y continuer notre la nuit.
 Au moment où je me couche, quelques projecteurs balaient le ciel silencieux. Ils se rencontrent tout d’un coup, beaucoup d’autres viennent s’y ajouter et instantanément, la D.C.A. se met à tirer. Un peu plus tard seulement, on entend le bruit de l’avion, mais l’alerte n’est pas donnée.
-Samedi 11 mai.
+### Samedi 11 mai.
 A 1 heure du matin la sirène se met en marche, nous descendons à la cave comme s’est convenu et nous essayons de dormir sur les paillasses.
 Au bout d’1 heure, l’alerte est finie, nous remontons. A 5 heures, cela recommence, mais je ne bouge plus et plusieurs autres font comme moi.
 3ème alerte de 6 à 8 heures
@@ -1192,128 +1192,128 @@ A la gare, on me dit que les express marchent encore aujourd’hui, mais demain 
 Je débarque à Wimereux à 9h45, je fais la route d’Ambleteuse à pied, n’ayant plus de moyens de transport. A mon arrivée à Ambleteuse, j’apprends que 4 villas de la digue ont été démolies et une bombe à éclatement, jetée sur la plage, a éclaté quelques heures après. Le soldat qui la gardait, a été projeté à plusieurs mètres, et il s’est relevé pour se mettre à courir à toutes jambes.
 L’avion allemand qui a lancé les bombes a été touché par la D.C.A., il a atterri au Cap Gris Nez.
 
-Dimanche 12 mai.
+### Dimanche 12 mai.
 Le temps est magnifique et d’Ambleteuse, on aperçoit très bien les 15 saucisses qui protègent Boulogne. Quelques alertes sont données et toutes sortes de bruit courent sur l’origine de la fumée blanche qui s’élève de la ville. Certains disent que la gare des Tintelleries est en feu, d »autres disent que c’est un hôpital, d’autres enfin affirment que le quartier Saint Pierre a été touché. Rien de tout cela n’est vrai. Seul l’aérodrome du Portel a été détruit ainsi que 13 avions dans la nuit de vendredi et un officier a été tué.
 Beaucoup de familles qui s’étaient réfugiées à Ambleteuse  vont se mettre à l’abri ailleurs. On annonce 15 départs.
 Une bombe est tombée à Audresselles, une autre a abimé le Splendid à Wimereux où 4 bombes à retardement ont éclaté sournoisement. A l’usine de Marquise, quelques ouvriers ont été blessés.
 
-Lundi 13 mai.
+### Lundi 13 mai.
 Une très bonne nuit m’empêche d’entendre les alertes de nuit de Boulogne. Je quitte Ambleteuse en bicyclette à 11h pour prendre le train à midi a Wimereux. Pendant les 3 heures d’arrêt que je passe à Calais, je vais voir le quartier bombardé. Plusieurs bombes sont tombées aux du port et de la gare maritime. Deux ont atteint des bungalows, 2 autres sont tombées sur des services de pêcheries et sur la Chambre de Commerce. Plusieurs maisons sont démolies, beaucoup d’autres sont branlantes et des milliers de carreaux ont été brisés aux alentours. Un officier a été tué dans le port et un remorqueur a coulé. Je reprends le train qui s’arrête pour laisser passer et suivre plusieurs trains militaires. Dans toutes les gares, on charge chevaux, voitures, tanks sur les plateformes. Tout le long de la voie, on annonce des points de chute de bombes. Près d’une petite gare, une bombe non explosée est restée coincée entre 2 voies. Elle n’a pas encore été enlevée.
 L’alerte est donnée à Hazebrouck au moment où nous entrons en gare. Nous avons croisé plusieurs train de réfugiés belges. De nombreuses personnes sont massées le long des voies pour voir les trains militaires et faire signe au revoir aux soldats.
 Je rentre à Lille à 8h 1/2 après un voyage fort long. Une de mes amies qui revient de Valencennes me dit que là-bas une bombe a tué 18 personnes habitant 2 maisons.
 Les Allemands sont entrés au Luxembourg et ont passé le Canal Albert en un point. Mais ils ont été arrêtés en Belgique et en Hollande. Des milliers de parachutistes en uniformes hollandais ou belges ont été capturés et fusillés.
 Le gouvernement belge demande à la population de déchirer les affiches de chicorée Pacha, qui parait-il, contiennent des indications pour l’ennemi.
 
-Mardi 14 mai.
+### Mardi 14 mai.
 Plusieurs forts de Liège ont cédé et les Allemands sont maintenant sur la Meuse à Liège, Namur, Dinant, Sedan. Le gouvernement hollandais est parti en Angleterre. D’innombrables réfugiés belges passent à Lille, ils viennent en auto, à pied, en bicyclette, de nombreux trains passent aussi en gare de Lille.
 Sept alertes ont été données aujourd’hui et la D.C.A. a tiré plusieurs fois même en dehors des alertes.
 Des parachutistes, muni d’une bicyclette et d’une mitrailleuse en pièces démontées atterrissent un peu partout dans la région. Dimanche, à l’église de Templemars, un parachutiste traqué par les Anglais, s’est réfugié. L’assistance a été prise de panique. Tout le monde est sorti en foule de l’église, cela a permis à l’espion de de se défiler sans être pris.
 Deux docteurs de Tourcoing ont été arrêtés pour espionnage.
 A Lille, au jardin Vauban, un officier anglais lisant innocemment son journal sur un banc. Comme il changeait tout le temps de banc devant le quartier général, ses allures suspectes l’ont fait remarquer, on l’a arrêté, c’était un espion.
 
-Mercredi 15 mai.
+### Mercredi 15 mai.
 Le gouvernement hollandais renonce à toute résistance sur terre, mais la guerre continue en mer et aussi dans la Zélande. En Belgique, les Allemands tentent de franchir la Meuse, ils sont très rapidement rejetés en arrière par les Français.
 Les réfugiés arrivent de plus en plus nombreux. Les autos belges ou autres qui entrent à Lille sont arrêtées à l’entrée de la ville par des militaires qui demandent les papiers de tout le monde. Aux carrefours de certaines rues, des soldats sont de planton pour veiller à la circulation, ils ont tous des fusils en bandoulière. Des jeunes filles qui viennent de Lannoy, me disent qu’on signale la présence de 2 parachutistes à Toufflers, de 3 autres à Hem. Aussi pour les arrêter et les identifier, on oblige tout le monde, sous peine de mort, à porter sur soi sa carte d’identité. La radio demande que les Français s’organisent pour faire la chasse aux parachutistes.
 Ce soir on annonce que les Allemands ont passé la Meuse en plusieurs endroits et de violents combats les ont repoussé aux environs de Namur.
 
-Jeudi 16 mai.
+### Jeudi 16 mai.
 Je reçois une lettre d’Henry dont le poste est maintenant dans une … sur le front dans la charnière Moselle-Luxembourg. Le combat est dur de ce côté. 
 Pendant l’alerte de l’après-midi qui dure de 2h à 5h, on annonce que la D.C.A. a descendu un avion allemand à Fives. La gare de Lesquin a été bombardée.
 Les réfugiés arrivent maintenant par milliers comme un lamentable troupeau et ils sont dirigés vers le centre de rassemblement de Wavrin. Tous les jeunes gens belges de 16 à 35 ans viennent se faire enrôler à la citadelle.
 D’innombrables autres partent surchargés de bagages, il y a aussi beaucoup d’autos françaises qui s’en vont. A 5 heures, je me décide à faire une valise et à l’envoyer immédiatement par Colis postal. A 6 heures, on me dit qu’il n’est plus question d’examen, d’ailleurs les Facultés de l’état et de la Catho ferment leurs portes à partir de samedi.
 N’ayant plus de raison de rester à Lille, je me décide à prendre le 1er train le lendemain.
 
-Vendredi 17 mai.
+### Vendredi 17 mai.
 La D.C.A. se fait fermement entendre pendant la nuit, il y a des dégâts à Fives et à Mons en Baroeul.
 Je me lève avant 4 heures pour porter des bagages à la gare. A partir de 5 heures, une de mes amies fait la queue pendant ¾ d’heures pour prendre mon billet et le soir, je retourne au Foyer chercher une autre valise et mon commissionnaire qui est manchot m’en prend une 3ème. En me faufilant entre des monceaux de bagages, j’arrive à enregistrer mes valises. A 6h1/4, je suis installée dans le train qui part à 7 heures, et on annonce que le train étant complet, les voyageurs devront attendre jusqu’à 4 h du soir le train suivant.
 A la sortie de Lille, le convoi qui est extraordinairement long et lourd fait un détour par Don, Sainghin, probablement à cause des dégâts du bombardement de cette nuit. Le train qui est bondé de réfugiés et de marchandises marche lentement jusqu’à Longueau. Là il entre dans une colonne de trains de réfugiés et nous mettons1h1/4 pour arriver à Paris. Nous croisons des trains de blessés, des trains mitraillés, des trains de soldats français et belges, des trains de ravitaillement etc…
 Pendant les innombrables arrêts, de braves gens nous apportent du pain, de la boisson. Je finis par en prendre ma part car je n’ai aucune provision.
 A l’arrivée à Paris, plus d’autobus, je prends un taxi pour me rendre chez tante Claire, je la trouve fort émue des évènements. J’ai juste le temps de me ravitailler un peu et je prends le train d’Annecy à 8h25. Je voyage avec une famille de cultivateurs de Monthermé qui sont en route depuis 8 jours. Leur train a été bombardé, il y a eu 2 morts et 15 blessés, les voyageurs se sont couchés dans les bois et le train s’est abrité dans un tunnel. Malgré tout, ils sont résignés à leur sort et ne se plaignent pas.
 
-Samedi 18 mai.
+### Samedi 18 mai.
 J’arrive à Veyrier à 8heures du matin, on ne m’y attend pas et la surprise est d’autant plus grande. J’y passe la journée dans un calme que je ne connaissais plus depuis longtemps. Le gouvernement belge s’est réfugié à Ostende et les Allemands sont à l’ouest de Bruxelles et aux environs d’Avesnes.
 Des bombardements ont eu lieu à Arras, à Chalons sur Marne, à Mantes… 4 appareils ont été abattus aux environs de Paris. Le général Grandin donne l’ordre de « Vaincre ou de mourir, mais il faut vaincre ». Le cabinet est remanié. Le Maréchal Pétain est à la vice-présidence du Conseil, Mr Mandel à l’Intérieur, Daladier aux Affaires Etrangères et Paul Raynaud à la guerre.
 
-Dimanche 19 mai.
+### Dimanche 19 mai.
 On se bat maintenant du côté d’Hirson.
 Laon, Guise, Saint Quentin. Des offices religieux des divers cultes ont lieu à Paris. Le président du Conseil assiste cet après-midi à Notre Dame à des prières publiques pour la France.
 La R.A.F. a bombardé d’importants dépôts d’essence en Allemagne, et le ravitaillement des troupes allemandes devient de plus en plus difficile.
 Le général Weygand est nommé chef d’état major de la défense nationale.
 Les usines qui travaillent pour l’armement devront fournir un travail de 24h sur 24.
 
-Lundi 20 mai.
+### Lundi 20 mai.
 Weygand est bien le généralissime, il prend la place de Gamelin qui a été limogé. Mandel est nommé ministre de l’Intérieur, tandis que le Maréchal Pétain est nommé ministre d’Etat. 
 Les Allemands sont maintenant aux environs de Cambrai et de Péronne. Laon et Rethel sont occupés.
 Mr Baratte qui vient d’arriver de Lille me dit que le train que j’ai pris vendredi était le dernier qui ait quitté Lille. Son départ fixé à lundi a été avancé et il a acheté une auto d’occasion pour partir. Il a quitté samedi à 4h. Le matin, les journaux de Lille s’étaient fondus en une seule feuille.
 A la sortie de Lille, les pavés des rues, les instruments agricoles etc… étaient établis en chicane comme protection contre les tanks. Une colonne ininterrompue de réfugiés à pied, en bicyclette, en camion, etc…était croisée ou dépassée par les colonnes militaires. Mr Baratte qui voulait passer par Bapaume, a été dirigé vers la côte. Il se décide à coucher la nuit dans son auto près d’Abbeville. Le lendemain, près de Formeries, les quelques autos qui l’accompagnent, sont mitraillées, tout le monde descend et va s’abriter derrière un mur. A Formeries, une fumée extraordinairement importante s’élève d’un aérodrome, c’est probablement un camouflage. Toutes les villes ont été bombardées un peu avant le passage de l’auto. A Orléans, nouvelle nuit à la belle étoile, et Mr Baratte est arrivé ici après 48 heures de route et un voyage de 1000 km.
 Des évacués qu’il a rencontrés, lui ont dit qu’une colonne de réfugiés qui marchait sur une route de la forêt de Mormal a été bombardée par 3 avions qui prenaient la route d’enfilade et ont jeté des bombes d’un bout à l’autre et sont revenus en mitraillant les malheureux à bout portant.
 
-Mardi 21 mai.
+### Mardi 21 mai.
 Les Allemands sont entrés en petit nombre à Arras et Amiens. Des trahisons commises ont empêché de faire sauter les ponts.
 Dans un discours au Sénat, Paul Raynaud demande un revirement intellectuel. Il montre la gravité de la situation, mais il a confiance dans la France et dans le miracle, s’il est nécessaire.
 
-Mercredi 22 mai.
+### Mercredi 22 mai.
 Arras a été repris aux allemands par les troupes françaises, tandis qu’à l’Ouest d’Amiens, l’avancée de quelques motocyclistes allemands est peu importante.
 Toutes les émissions musicales et artistiques sont supprimées à tous les postes de T.S.F. sauf à Radio-Paris. Les Etats-Unis et les Républiques sud américaines s’émeuvent de l’agression allemande et élèvent une protestation. Les fournitures d’avions aux Alliés priment toutes les autres commandes. En Angleterre, un décret, demandant la réquisition du travail de n’importe qui, à n’importe quel travail, est présenté devant les Assemblées.
 
 Weygand a pris son commandement, il a fait une tournée d’inspection au front, il en revient avec l’assurance de la victoire de la France, si chacun fait franchement son devoir.
 Deux alertes ont lieu à Annecy cette nuit.
 
-Jeudi 23 mai.
+### Jeudi 23 mai.
 Des motocyclistes allemands ont pénétré dans une cabine d’aiguillage à Abbeville. Le 1er ennemi a été maitrisé. Devant le nombre, les cheminots se sont enfuis, ils ont tenté de traverser la Somme à la nage, l’un d’eux a été tué à coups de mitrailleuse.
 De violents combats ont lieu entre Valenciennes et Cambrai. On dit que la ville de Reims est en flamme.
 A 9h1/4 après un coup de sonnette, on entend du remue-ménage, ce sont Gaby, Pierrot et François qui arrivent d’Ambleteuse. Ils sont partis de là-bas dimanche matin pour aller coucher à Saint Valéry. Leur mère qui devait prendre un taxi et les y retrouver, n’est pas arrivée. Ils l’ont attendu 24 heures et sont partis à 4 h du matin pendant qu’ils entendaient tirer au fusil et à La mitrailleuse dans les environs. Ils ont marché pendant longtemps dans des colonnes de piétons, de carrioles, d’autos. Après une nuit dans un groupe, ils ont pu trouver à Pontoise un train qui les a conduits à Paris et de là à Annecy.
 
-Vendredi 24 mai.
+### Vendredi 24 mai.
 Des éléments avancés allemands ont atteint la Manche, d’autres ont pénétré jusqu’à Saint-Omer et Boulogne.
 En un temps record : 155 minutes, le Parlement anglais vote une loi draconienne mettant les services et la fortune de chaque citoyen à la disposition de l’état.
 La R.A.F. et l’aviation française bombardent des dépôts d’essence à Rotterdam et à Hambourg.
 
-Samedi 25 mai.
+### Samedi 25 mai.
 Les Allemands s’infiltrent toujours du côté de Boulogne et d’Etaples. Dans le Nord, on se bat aux environs d’Audenarde. L’ennemi cherche par tous les moyens à désorganiser l’armée. Il téléphone de faux ordres d’évacuation, répand des tracts. Pendant la nuit dernière, en Angleterre, on a collé des affiches conseillant d’écouter un certain poste de T.S.F. Or ce poste était allemand et les affiches avaient été posées par la 5ème colonne.
 On annonce que 15 officiers supérieurs français auraient été révoqués ainsi que de nombreux fonctionnaires, préfets, sous-préfets etc…
 Madame Fallette nous raconte que son beau-frère a remarqué un capucin observant le ciel dans un jardin public. 
 Ce capucin entra ensuite chez un photographe et y acheta un appareil photo. Dénoncé à la police, il fut arrêté comme espion à Annemasse.
 
-Dimanche 26 mai.
+### Dimanche 26 mai.
 Les Français tiennent encore une partie de la ville de Boulogne et Calais est entre nos mains. Abbeville est complètement détruit par les bombardements.
 Les Allemands lancent des bombes-sirènes et des bombes sifflets pour semer le désordre et la panique.
 Le fils du général Dosse qui était dans un convoi de camions aux environs de Maubeuge, a été cerné par les Allemands. Il est fait prisonnier, on dénombre les camions et les hommes, il parvient à faire demi-tour et à s’enfuir avec sa machine percée comme une écumoire. Il passe à côté de Maubeuge en feu. Sur sa route, il rencontre un cycliste qui arrange sa machine. Il propose de l’aider. Refus de l’autre. En examinant de plus près, il s’aperçoit que la bicyclette est démontable en 2 parties. L’homme est immédiatement capturé et livré à la gendarmerie comme espion.
 
-Lundi 27 mai.
+### Lundi 27 mai.
 Les Allemands se sont emparés de Boulogne, on se bat du côté de Saint Omer, d’Aire-sur-la Lys, au sud de Lille, du côté de Menin au nord. Lille est donc encerclée de plus en plus étroitement.
 Une amie de Françoise lui écrit que Dieppe a été bombardé plusieurs fois sans grands dégâts, sauf un navire hôpital contenant 800 blessés qui a été attaqué parles avions ennemis. 500 soldats anglais ont péri noyés.
 Toujours aucune nouvelle, ni de tante Marie, ni de tante Henriette Bernard.
 Pour faire des économies de papier, les journaux ne paraissent plus que sur une page à partir d’aujourd’hui.
 
-Mardi 28 mai.
+### Mardi 28 mai.
 Fait inouï dans l’histoire : le roi des Belges dépose les armes, contre l’avis du gouvernement de son pays qui se désolidarise de lui immédiatement et reprend les armes pour continuer la lutte. L’émotion est générale en France et l’inquiétude grandit.
 Mr Pierlot, président du Conseil de Belgique délie les fonctionnaires belges du serment de fidélité au roi. Il se rend en cortège à Paris devant la statue d’Albert 1er, il y dépose une couronne, et la statue est ensuite voilée de noir pour que le père ne voit pas la faute de son fils.
 La générale Dosse vient nous faire visite. Elle nous parle du général Gamelin comme d’un homme fatigué, n’ayant plus toute sa pleine vigueur d’esprit et se laissant mener par Daladier et les parlementaires.
 
-Mercredi 29 mai.
+### Mercredi 29 mai.
 L’armée belge a capitulé, ouvrant aux Allemands la route de Dunkerque. Par ce port, les Français continuent à ravitailler l’armée du nord qui se défend héroïquement. Les pertes de l’ennemi sont extraordinairement nombreuses pour les dernières journées.
 La ville de Narvik a été récupérée aux Allemands qui l’occupaient depuis le 9 avril.
 Jacqueline Bayart a eu des nouvelles de sa famille. Son père et son frère ont passé la Somme au péril de la vie, au risque de se noyer. Sa mère déposée près d’Eu par des amis ne peut plus en sortir. On ne trouve plus rien à manger dans la région qui est très près du front.
 Hier, l’hôpital américain d’Ostende a été complètement anéanti : tout le personnel, médecins et infirmiers et 200 malades ont été tués.
 
-Jeudi 20 juin.
+### Jeudi 20 juin.
 Le poste de Genève a annoncé la prise de Lille par les Allemands, mais le communiqué français n’en parle pas. Il est seulement question de combats très violents à Cassel et sur l’Yser, et de la retraite des troupes françaises qui s’embarquent à Dunkerque.
 Ma tante Claire Pineau m’écrit que Tte Adrienne Delétoille a quitté Arras, après un bombardement où 30 bombes furent lancées. L’incendie commença à l’autre bout de la rue des Capucins.
 La capitulation de l’armée belge a été faite sans conditions. Les belges durent arborer de grands panneaux blancs et se ranger le long de la route où les Allemands passèrent se rendant vers Dunkerque.
 
-Vendredi 31 mai.
+### Vendredi 31 mai.
 Une partie des troupes Alliées s’est embarqué à Dunkerque dont les environs sont inondés pour empêcher l’avance des Allemands. Le reste de l’armée est ravitaillée par parachute. C’est le général Prioux qui commande l’armée française formant l’arrière garde qui doit se frayer un passage à travers les avants de l’ennemi.
 On annonce officiellement qu’une partie de l’armée belge n’a pas capitulé et combat avec les Alliés. Léopold III est à Bruges avec sa mère, il a mis ses enfants en sécurité au Portugal. Le journal officiel français publie un arrêté le rayant de l’Ordre de la Légion d’Honneur où il avait le grade de Grand-Croix.
 Les parlementaires belges présents en France se sont réunis à Limoges en une séance émouvante.
 Mr Carles, préfet du Nord, est proposé pour la Légion d’Honneur, en raison de sa conduite depuis le 10 mai.
 Aujourd’hui, fête du Sacré-Cœur, c’est une journée de prières nationales. Nous allons aux Vêpres à la Visitation, où est rassemblée une foule immense et recueillie.
 
-Samedi 1er juin.
+### Samedi 1er juin.
 La position de Dunkerque se renforce et l’embarquement des troupes continue. Une grande partie de l’armée anglaise a débarqué en Angleterre. Le commandant du corps expéditionnaire, lord Gort y est arrivé également.
 Sur la Somme, nous avons repris quelques têtes de pont au Nord de la rivière.
 Un raid allemand a eu lieu aujourd’hui sur la vallée du Rhône et plusieurs bombes ont été jetées à Lyon. Plusieurs bombardiers allemands ont été abattus dont un près de Bellegarde, un des Allemands a été carbonisé, les 3 autres faits prisonniers. L’alerte a été donnée à Annecy, è la grande frayeur des habitants.
-Dimanche 2 juin.
+### Dimanche 2 juin.
 Les Allemands ont maintenant installé leur artillerie lourde aux environs de Dunkerque et ils bombardent les plages d’embarquement. Les Alliés arrivent quand même en bon ordre en Angleterre. Les soldats harassés et fatigués sont mis au repos. Ils ont un moral excellent et veulent retourner pour se battre le plus tôt possible.
 Sur la Somme, les Français ont repris plusieurs têtes de pont aux Allemands.
 Henry nous écrit des environs de Reims où il est maintenant au repos.
@@ -1321,18 +1321,18 @@ Dans les raids allemands sur le sud-est, des bombes ont été jetées à Aix-les
 Les négociations commerciales ont été brusquement rompues entre l’Italie et les Alliés et on annonce la guerre dans les Balkans comme imminente.
 L’école de Service Social m’écrit qu’on a aucune nouvelle de Mlle Charrondière partie de Lille le 18 et qui a été aperçue à Auxi Le Château le 20. On est très inquiet d’elle et on réorganise l’école dans la mesure du possible.
 
-Lundi 3 juin.
+### Lundi 3 juin.
 L’embarquement à Dunkerque continue. Les soldats allemands qui essaient de traverser les zones inondées tombent et se noient à la 1ère blessure.
 Des bombes ont été jetées sur Paris et les environs. D’autre part, une alerte a été donnée hier à Annecy et dans le sud est, Marseille entre autre a été bombardé.
 Le cardinal Liénart est nommé Grand-Croix de la Légion d’Honneur pour son attitude avant et pendant l’invasion allemande. Il s’est laissé enfermer dans Lille occupée.
 
-Mardi 4 juin.
+### Mardi 4 juin.
 L’embarquement de Dunkerque s’est terminé ce matin, par des combats d’arrière-garde dans les rues de la ville. Le port a été rendu inutilisable et 350.000 hommes ont été transportés.
 Aujourd’hui s’est réuni à Rome le grand conseil fasciste d’où devait sortir la grande décision de l’Italie. Mais on n’annonce encore rien aujourd’hui.
 Le bombardement de Paris, causé par 1.800 bombes a fait 250 morts et 600 blessés. La riposte a été faite immédiatement à Munich et Francfort.
 Je reçois une lettre de Jeannette Henry. Elle me raconte son départ de Lille en  bicyclette le 19 mai au milieu d’interminables convois de réfugiés, ses arrêts à …, St Valéry, Rouen, ses difficultés pour se ravitailler, car elle n’avait emporté aucune provision. Elle a pris le train seulement à Alençon et est arrivée à Angers après 8 jours de voyage.
 
-Mercredi 5 juin.
+### Mercredi 5 juin.
 L’embarquement s’est terminé sous le feu des mitrailleuses allemandes, pendant que se déroulaient des combats dans les rues.
 L’amiral Abrial est le dernier homme qui ait quitté la ville. A son arrivée, il a été reçu en audience par le roi Georges VI.
 Une grande offensive a été déclenchée ce
@@ -1340,63 +1340,63 @@ Ce matin à 4h de Laon à la mer. Les chars d’assaut allemands ont réussi à 
 Le poste de radio de Bruxelles donne des informations précédées de ces mots : « A bas Hitler », mais la ruse allemande a été vite éventée et dénoncée officiellement.
 Madame Fallette part demain se réfugier à Beaurepaire, car elle est fort inquiète de la guerre avec l’Italie.
 
-Jeudi 6 juin.
+### Jeudi 6 juin.
 La bataille fait rage le long de la Somme et de l’Aisne. Les tanks allemands ont pu arriver jusque sur la Bresle, mais l’ensemble des lignes françaises les ont arrêtés.
 Le fameux discours de Mussolini est remis à une date ultérieure, tandis que Paul Reynaud, après avoir montré les difficultés de l’heure présente nous parle des raisons d’espérer.
 Le cabinet de guerre est remanié, il ne comprend plus que 8 ministres au lieu de 11.
 Madame Lesay nous écrit une longue lettre, elle est fort inquiète d’une partie de sa famille qui est restée dans le Nord. Elle a entendu parler d’un Dubois Devilder. S’agirait-il de Jean Dubois ?
 
-Vendredi 7 juin.
+### Vendredi 7 juin.
 L’avance allemande est généralement contenue. La R.A.F. a découvert que la toiture des tanks allemands est assez vulnérable et elle les attaque à la bombe et au canon.
 
 Jean Gaillet écrit à Etienne que Tournai a été fortement bombardé, la cathédrale a été touchée. Mr Gaillet, revenu à Cysoing le 19 mai après 2 jours d’absence, a trouvé sa maison en partie pillée. La prison et l’asile de Tournai ont ouvert leurs portes et les fous ont été employés à éteindre les incendies. Nous recevons une lettre de Jenny, la femme de chambre des Maurice qui demande des nouvelles de ses patrons. Elle est évacuée dans le Morbihan avec les habitants de Picquigny.
 
-Samedi 8 juin.
+### Samedi 8 juin.
 Les Allemands augmentent leur poussée et les Français ont opéré un recul. On se bat maintenant d’Aumale à Noyon. Des chars ennemis ont réussi à s’infiltrer jusqu’à Forges les eaux.
 Des travailleurs algériens s’installent aujourd’hui à Veyrier. Ils viennent du Luxembourg où ils étaient entrés le 10 mai à 8 heures du matin. Les Allemands qui les avaient précédés, étaient montés dans les arbres et ont fauché 400 français. Un des soldats originaires de Roubaix, nous demande des nouvelles du pays.
 Ma tante Laure écrit pour annoncer la mort de Jean Dubois, il a été blessé par une torpille le 13 mai, et est mort le 15, après avoir beaucoup souffert. Tante Laure nous envoie de très belles lettres écrites par son lieutenant, par ses amis, il était pour eux un magnifique exemple. Il est enterré à Spincourt en terre française.
 
-Dimanche 9 juin.
+### Dimanche 9 juin.
 Les Allemands attaquent au nombre de 1 800 000 hommes de Montmédy à la mer. Les Français, inférieurs en nombre, sont obligés de reculer et les Allemands se sont infiltrés jusque Breteuil, Gisors et aux faubourgs de Rouen. La situation est très grave et Weygand, dans une proclamation à l’armée, donne l’ordre de tenir bon. En Belgique, le cardinal Van Roey a donné aux fidèles l’ordre de se rallier au roi. Dans ce pays, il n’y a plus de poste, plus de tramway, les canaux sont inutilisables et on remarque déjà un commencement de disette.
 
-Lundi 10 juin.
+### Lundi 10 juin.
 A 16h30, le Comte Ciano fait appeler l’ambassadeur de France pour lui dire qu’il se considère en état de guerre avec ce pays. A 16h45, même démarche auprès de l’ambassadeur de Grande Bretagne. Le Comte Ciano dit s’acquitter ainsi des engagements pris envers Hitler.
 Le général Dosse rentre dans l’active pour prendre le commandement de l’armée des Alpes.
 La bataille se continue de plus en plus ardente de la mer à Montmédy. Des éléments avancés allemands sont arrivés jusque Gisors, ont passé la Seine et ont atteint Vernon.
 Antoinette Suin, installée à Aix-les-Bains, vient passer la journée à Veyrier. Elle est partie de Lannoy le 18 mai. Sa sœur et ses enfants après 3 jours de tentatives pour passer la frontière belge, ont pu passer en France le dimanche. Ils s’étaient empilés, les parents et les 7 enfants dans une petite Simca. Ils ont mis 8 jours pour arriver à St Lunaire.
 
-Mardi 11 juin.
+### Mardi 11 juin.
 Les hostilités avec l’Italie ont commencé ce matin à minuit. Il ne s’est rien passé sur le front des Alpes. Les Italiens ont bombardé Malte, ils ont causé peu de dégâts, tandis que la R.A.F. a bombardé les aéroports de Lybie, même le golfe de Venise et le sud de l’Italie. La fureur contre les Italiens est générale. A Lyon des italiens ont été lynchés, à Annecy, 4 magasins tenus par des Italiens ont eu leurs vitres brisées.
 Les Allemands cherchent à encercler Paris, par Rouen et Vernon où ils sont à peu près arrêtés et par Reims et Soissons où la bataille a été d’une violence extraordinaire. Des mesures de précaution sont prises à Paris : évacuation à Tours des ministres et de la Bourse des Valeurs, conseil de quitter la capitale à tous les hommes susceptibles d’être appelés, à partir de 17 ans.
 
-Mercredi 12 juin.
+### Mercredi 12 juin.
 Les Allemands ont une tête de pont au sud de le Seine, ils cherchent à marcher en direction d’Evreux. On se bat sur la ligne Persan Beaumont, Senlis, La Ferté-Milon. A Reims, la bataille est extrêmement violente, mais la ville est toujours aux Français. Nos troupes se replient par la Montagne de Reims. Que devient henry dont la dernière lettre était écrite des environs de Reims ?
 Des bombes ont été jetées en Suisse sur plusieurs villes, entre autres sur Genève, on ignore par qui elles ont été lancées.
 Les fonctionnaires des services publics de Paris reçoivent l’ordre de rester à leur poste, ainsi que tous ceux qui assurent le ravitaillement : épiciers, bouchers, boulangers.
 Le général est venu passer une ½ heure à Veyrier. Il conseille à sa femme d’être prête à partir s’il le fallait au cas où l’Allemagne envahirait la Suisse.
 Le corps expéditionnaire de Norvège est retiré pour ajouter de nouveaux soldats à l’armée française.
 
-Jeudi 13 juin.
+### Jeudi 13 juin.
 Dominique de la Touanne fait aujourd’hui sa 1ère communion, à la chapelle de la Galerie à Annecy. La messe est dite par un prêtre soldat. Nous sommes invitées, maman et moi au diner de 1ère communion au Touannet.
 Les Allemands progressent à l’ouest de Paris, du côté de Caudebec et de Pont de l’Arche, Vernon, à l’est ils prennent Reims et s’avancent jusqu’à Château-Thierry. Du côté de Persan-Beaumont, une contre-attaque française, donne un gain de terrain de 8 kilomètres.
 La ville de Paris est déclarée ville ouverte pour y éviter la destruction et la dévastation. Paul Raynaud a fait, il y a 3 jours, appel au secours de l’Amérique pour lui demander toute son aide, sauf un corps expéditionnaire. Il renouvelle aujourd’hui son appel d’une façon plus pathétique et plus pressante. Il annonce cela à la T.S.F. en annonçant que la France va vivre des jours très sombres où les Français devront s’unir pour supporter leurs souffrances. Il termine en disant que la France résistera. 
 
-Vendredi 14 juin.
+### Vendredi 14 juin.
 La France attend avec calme la réponse de l’Amérique. De cette réponse dépendront les graves décisions que doit prendre le gouvernement. Le communiqué de ce matin annonce que les Allemands vers Evreux et Dreux à l’ouest, à l’est, ils sont à Château-Thierry et Montmirail. Aussi et surtout, ils entrent aujourd’hui à Paris d’où les troupes françaises se sont repliées. C’est un jour de deuil pour la France qui attendDans l’angoisse les graves décisions dont parle le gouvernement. Ce soir, la réponse de l’Amérique n’est pas encore arrivée. 
 L’Espagne occupe le port international de Tanger, en accord parait-il, avec les gouvernements anglais et français.
 La générale Dosse vient diner. Elle craint une capitulation de la France. Elle nous parle du passage de la Seine par les Allemands comme d’une chose extraordinaire. Les Allemands, cachés par un rideau de fumée, devaient avoir une méthode nouvelle, inconnue des Français pour traverser la Seine considérée comme infranchissable par tous les états-majors.
 
-Samedi 15 juin.
+### Samedi 15 juin.
 Les Allemands s’installent à Paris. Ils ont fait mettre une garde d’honneur au Soldat Inconnu et au tombeau de Napoléon aux Invalides, le drapeau flotte maintenant sur le château de Versailles.
 Verdun a été pris, les Allemands progressent entre Troyes et Romilly, ils cherchent à atteindre Chaumont pour encercler la ligne Maginot. Ils ont pu passer le Rhin à Neuf Brisach sans entourer pour cela les fortifications.
 Le gouvernement français a quitté Tours pour un nouveau repli. Un conseil de cabinet a eu lieu, la réponse de l’Amérique n’est arrivée que plus tard, elle ne change rien à l’aide qu’elle avait déjà apportée.
 L’U.R.S.S. envoie un ultimatum à la Lithuanie qui est obligée de l’accepter. Immédiatement Kaunas est envahie.
-Dimanche 16 juin.
+### Dimanche 16 juin.
 La bataille augmente toujours d’intensité et malgré cela, l’avance allemande continue. Ce matin, ils étaient à Chaumont et Gray, ce soir, ils sont à Clamecy, Avallon, Sens, Auxerre et aux environs de Dijon. Aucune nouvelle d’Henry qui était prés de Reims, de Michel qui était aux environs de Chartres où arrivent les Allemands. Que deviennent les Derély qui étaient à 20 kilomètres d’Avallon ?
 Les Becquart rentrent ce soir de Montargis où ils s’étaient installés depuis 15 jours.
 Aujourd’hui, c’est le bachot de Philo et de Math Elem, pendant que les garçons travaillent, nous allons passer l’après-midi chez les Baratte.
 
-Lundi 17 juin.
+### Lundi 17 juin.
 Verdun est prise et les Allemands tentent de couper la ligne Maginot.
 Un conseil des Ministres s’est réuni hier à plusieurs reprises à Bordeaux. Paul Raynaud a démissionné, ainsi que les présidents de la Chambre et du Sénat. Le Maréchal Pétain est Président du Conseil, le Maréchal Weygand est vice-président.
 A midi ½, le Maréchal Pétain annonce à la T.S.F. qu’il a dû demander un armistice aux Allemands. Il fait le sacrifice de sa personne à la France.
@@ -1405,56 +1405,56 @@ Mussolini part ce soir à Munich par train spécial pour y conférer avec Hitler
 La demande d’armistice a été transmise
 A l’Allemagne par l’ambassadeur d’Espagne en France et à l’attaché par Mgr …… nonce apostolique.
 
-Mardi 18 juin.
+### Mardi 18 juin.
 A Annecy, on annonce que les Allemands sont à Bourg, tout le monde s’affole, des réfugiés arrivent du Jura, ainsi que des convois de blessés et quelques camions de troupes. Les garçons vont consulter le colonel Jouffray qui était venu faire visite la veille, il leur conseille de ne pas partir tout de suite. A la gendarmerie et au bureau de la place, on leur dit qu’on n’a pas reçu d’ordres pour le départ des jeunes gens.
 Hitler et Mussolini se rencontrent ce soir à Munich.
 Les Allemands continuent à avancer, les troupes anglaises qui se sont retirées, leur ont ouvert les portes de la Normandie et de la Bretagne, ils ont atteint Cherbourg et Rennes, Orléans, La Charité sur Loire, Le Creusot, Lons Le Saunier. L’armée de la ligne Maginot se replie et tente de percer les lignes allemandes.
 Le général De Gaulle parle ce soir à la T.S.F. à Londres, il demande aux Français de se rallier à lui.
 
-Mercredi 19 juin.
+### Mercredi 19 juin.
 Les Allemands demandent que le gouvernement français nomme des plénipotentiaires. S’ils sont acceptés, le lieu et l’heure de la réunion sera fixé.
 Les ennemis s’avancent vers Saint-Malo, Nantes, on se bat dans les environs de ….., de Chateaudun. A Tours, les Allemands ont traversé la Loire, ils ont pris Bourges, remontent l’Allier, atteignent Roanne et Ambérieu et même ils traversent Lyon.
 Les 5 garçons sont partis ce matin dans l’auto de Mme de l’Epinay. Ils pensent prendre Léon Lefort à Grenoble et l’emmener chez ses parents. Ils ont pris 5 bicyclettes ainsi que d’abondantes provisions.
 Le général De Gaulle est désavoué par le gouvernement français et on lui interdit de parler ce soir à la radio. 
 Les trains sont supprimés au nord de la ligne Bordeaux Toulouse. Sète, tous les examens sont ajournés et les jeunes gens sont invités à se disperser.
 
-Jeudi 20 juin.
+### Jeudi 20 juin.
 Les plénipotentiaires sont partis dans un avion peint en blanc d’un aérodrome de la Charente, à Mérignac. L’entrevue a eu lieu à Rethondes dans le wagon où a été signé l’armistice en 1918. Elle a commencé à 23h45 en présence de Hitler, Goering, Rudolph Hess etc…
 Les Allemands ont atteint Nantes et Brest. Ils tiennent toute la Loire et l’ont même dépassé en certains points. A Tours, des combats ont eu lieu dans les rues. Les Allemands approchent de chez nous. Ils sont à Nantua et Bellegarde.
 Bordeaux a été sérieusement bombardée. Les Anglais ont annoncé que le gouvernement avait quitté la ville, mais cette nouvelle a été démentie.
 
-Vendredi 21 juin.
+### Vendredi 21 juin.
 Les négociations continuent à Rethondes. Les Français se sont retirés dans une tente préparée à leur intention, ils ont communiqué par T.S.F. avec le gouvernement français et une 2ème entrevue a eu lieu.
 20.000 de la ligne Maginot sont passés en Suisse, où ils ont été internés. Une autre Partie de l’armée résiste sur place. Une 3ème se forme en carré pour percer les lignes allemandes.
 
-Samedi 22 juin.
+### Samedi 22 juin.
 L’armistice a été signé ce soir à 6h50 à Rethondes mais il n’entrera en vigueur que 6 heures après la signature de la suspension d’armes avec l’Italie.
 Lorient et Saint-Malo sont aux mains des Allemands. Ils progressent au sud de la Loire en direction de La Roche sur Yon et de Poitiers. On se bat à Roanne et Saint Etienne, les spahis ont repoussé les tanks ennemis à …. , au sud de Lyon. Beaurepaire, Bourgoin, la Tour du Pin sont occupés. La Savoie sera-t-elle épargnée ?
 On entend quelques détonations et Seyssel a été bombardé dans la nuit.
 Nous recevons une carte des garçons écrite le jour de leur départ à 15h30 de Bourg de Péage.
 Nous recevons quelques dames de Veyrier. La générale Dosse est fort pessimiste.
 
-Dimanche 23 juin.
+### Dimanche 23 juin.
 Les Allemands ont pris Lorient et Royan, ils avancent en direction de Chambéry et de Grenoble. A Seyssel, les Anciens Combattants de la Haute Savoie ont fait sauter le pont et barré la route d’Annecy. Pendant la journée, nous avons entendu dans le lointain le canon qui tonnait à Seyssel.
 Winston Churchill a fait hier un discours dans lequel il accuse la France de manquer à ses engagements et d’être à la solde de l’Allemagne. Le gouvernement anglais ne reconnait plus le gouvernement français, mais un comité provisoire se constitue à Londres pour continuer la lutte, sous la direction du général De Gaulle.
 Le Maréchal Pétain reproche à l’Angleterre ses accusations et il affirme que les clauses de l’armistice ne sont pas déshonorantes. Le général Weygand destitue De Gaulle de son titre de général.
 Les Allemands entrent ce soir à Aix-les-Bains, ils sont passés par le tunnel de la Chambotte.
 
-Lundi 24 juin.
+### Lundi 24 juin.
 Des combats ont lieu aux environs de Poitiers, Angoulême et Bayonne. Dans le Centre, on se bat à Roanne et Saint Etienne. En Savoie, les Allemands essaient d’atteindre Chambéry par le tunnel de l’Epine. Un officier français en retraite organise la résistance, fait sauter le tunnel et périt dans la bataille.
 Les Italiens pénètrent en France et occupent Lans le Bourg, Menton et Saint Martin de Vésubie. Des pourparlers ont lieu toute la journée entre les plénipotentiaires français et italiens, réunis dans une villa de la région de Rome. Le gouvernement français donne brusquement l’ordre de signer l’armistice. La notification en est faite à 19h35 au gouvernement allemand et les hostilités cesseront 6 heures après, 1h35 heure suisse, 0h35 heure française.
 L’Angleterre fait connaitre les conditions de l’armistice entre autres l’occupation de la France de Genève à Tours et de tous les côtes de France. Elle qualifie cela de capitulation.
 
-Mardi 25 juin.
+### Mardi 25 juin.
 Les hostilités ont cessé à minuit 35 ce matin. Terrible journée d’armistice, jour de deuil national. Un service national est célébré à Bordeaux pour les morts de la guerre. Une Minute est observée partout. Cette cérémonie a lieu à Annecy à 11 heures.
 Tous les magasins sont fermés, ainsi que les cafés restaurants, les drapeaux sont mis en berne.
 Le différend franco-anglais s’envenime. Le Maréchal Pétain, dont le discours est attendu pendant toute la journée, parle seulement à la T.S.F. à 9 heures du soir. Il demande l’union et le travail pour que la France renaisse.
 
-Mercredi 26 juin.
+### Mercredi 26 juin.
 La radio française se tait à partir d’aujourd’hui. Le général De Gaulle s’adresse de Londres au Maréchal Pétain. Il lui demande comment il a préparé la guerre quand il était généralissime en 1935 et ministre de la guerre. Le ton de l’interpellation est pénible à entendre, mais les arguments sont convaincants.
 L’Angleterre annonce qu’un débarquement de troupes a eu lieu en territoire allemand, mais elle ne donne aucune précision à ce sujet.
 
-Jeudi 27 juin.
+### Jeudi 27 juin.
 Les conditions de l’armistice avec l’Allemagne sont enfin publiées officiellement. Celles de l’Italie ne sont pas encore connues. On sait cependant qu’une zone de 50 km devra être démilitarisée le long de la frontière. Les Savoyards qui se sont bien battus contre les Allemands, ont empêché l’invasion d’Annecy, Chambéry et Grenoble. Dans cette dernière ville, Allemands et Italiens s’étaient donné rendez-vous le 25 juin. Mais les Allemands pensaient bien que leurs alliés seraient en retard au rendez-vous.
 L’U.R.S.S. envoie un ultimatum à la Roumanie, pour lui demander la…………………………………………..
 F I N
