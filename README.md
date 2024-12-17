@@ -1,5 +1,22 @@
 # Dieu protège la France.
 
+```ruby
+require 'redcarpet'
+markdown = Redcarpet.new("Hello World!")
+puts markdown.to_html
+```
+
+
+
+```sql
+select * from euros;
+```
+Visit https://github.com
+
+visit https://web.enoria.app/
+
+
+https://web.enoria.app/
 
 <details>
 
