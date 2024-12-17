@@ -2,15 +2,17 @@
 
 ## 1939
 
-
+> Text that is a quote
 
 ## Veyrier, le vendredi 5 septembre 1939
 
-Nous sommes en guerre depuis 2 jours. Après 3 semaines de très bonnes vacances, un peu angoissées par la fameuse question de Dantzig, nous apprenons par le journal, du mercredi 23 août la conclusion du pacte germano-russe. Pendant ce temps, les missions militaires françaises et anglaises parlementaient à Moscou.
+**Nous sommes en guerre depuis 2 jours. Après 3 semaines de très bonnes vacances, un peu angoissées par la fameuse question de Dantzig, nous apprenons par le journal, du mercredi 23 août la conclusion du pacte germano-russe. Pendant ce temps, les missions militaires françaises et anglaises parlementaient à Moscou.**
 
 Nous sommes un peu plus inquiets après cette nouvelle tout à fait inattendue et nous partons faire le tour du lac de Genève avec Jeanne Lefort, en séjour à Josanna.
 Le lendemain 24 août, en sortant de la messe, nous voyons sur les murs l’ordre de mobilisation des fascicules 3 et 4. Monsieur Tacquet que nous recevions à diner est assez pessimiste mais très calme. Il me ramène à Annecy avec Jeanne Lefort et nous y apprenons que Dantzig vient de proclamer son indépendance. En même temps, le président Roosevelt envoie un message au roi d’Italie et la Pape fait un appel en faveur de la paix.
 Vendredi 25 août, le fascicule 2 est mobilisé. Le roi Léopold, au congrès d’Oslo, fait un appel en faveur de la paix.
+
+
 
 Ce jour-là, nous allons explorer les grottes de Thônes et le soir, les Déjouy viennent nous faire visite. Pour la première fois, on relance l’extinction des lumières.
 
